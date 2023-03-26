@@ -12,8 +12,8 @@ The Sikh idea that the outside world, or non-human nature, is a reflection of wh
 
 I used to think focusing on my own self-improvement was selfish. Now I understand that improving my mental health and encouraging others to do the same is actually helpful in the environmental crisis. Dr. Singh wrote, "The social justice crisis is that poverty, hunger, disease, exploitation, and injustice are widespread." Scientists chose to use fear tactics, which still only got them so far in communicating climate change. I propose we begin to help those around us to make what is going on _inside_ better. When we do this, the non-human world will surely show signs of improvement.
 
-[Dr. Singh's Essay:](https://fore.yale.edu/World-Religions/Sikhism/Overview-Essay)
+[Dr. Singh's Essay](https://fore.yale.edu/World-Religions/Sikhism/Overview-Essay)
 
-[Dr. Sing's Website:](https://rajwantsingh.org/)
+[Dr. Sing's Website](https://rajwantsingh.org/)
 
 ---
