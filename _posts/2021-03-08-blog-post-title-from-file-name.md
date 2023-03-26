@@ -1,9 +1,5 @@
 ## Examining Sikh Environmentalism: A Catholic Perspective
 
-Due to a plugin called `jekyll-titles-from-headings` which is supported by GitHub Pages by default. The above header (in the markdown file) will be automatically used as the pages title.
-
-If the file does not start with a header, then the post title will be derived from the filename.
-
 So many religions are trying to address the environmental crisis the earth is facing. Each religion brings different perspectives to the table, and I would like to look at Sikhism in particular for this post.
 
 There is an idea within the Sikh religion that humans treat the non-human nature how they feel on the inside. Dr. Rajwant Singh, Founder EcoSikh, wrote, "The current instability of the natural system of the earth - the external environment of human beings, is only a reflection of the instability and pain within humans." I will provide a link to his essay, "Environmental Theology in Sikhism" at the end of this post. 
@@ -19,26 +15,3 @@ I used to think focusing on my own self-improvement was selfish. Now I understan
 Dr. Singh's Essay: https://fore.yale.edu/World-Religions/Sikhism/Overview-Essay
 
 ---
-
-### This is a header
-
-#### Some T-SQL Code
-
-```tsql
-SELECT This, [Is], A, Code, Block -- Using SSMS style syntax highlighting
-    , REVERSE('abc')
-FROM dbo.SomeTable s
-    CROSS JOIN dbo.OtherTable o;
-```
-
-#### Some PowerShell Code
-
-```powershell
-Write-Host "This is a powershell Code block";
-
-# There are many other languages you can use, but the style has to be loaded first
-
-ForEach ($thing in $things) {
-    Write-Output "It highlights it using the GitHub style"
-}
-```
