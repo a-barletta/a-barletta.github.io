@@ -22,4 +22,4 @@ Believe me, I don’t want to think about getting murdered either, and I certain
 
 Join me next week for part two: Paris Geller, one of my personal favorite Gilmore Girls characters.
 
-WebMD articles on Antisocial Personality Disorder: [Antisocial Personality Disorder] (https://www.webmd.com/mental-health/antisocial-personality-disorder-overview), [How Sociopaths and Psychopaths are Different] (https://www.webmd.com/mental-health/psychopath-sociopath-differences#1)
+WebMD articles on Antisocial Personality Disorder: [Antisocial Personality Disorder](https://www.webmd.com/mental-health/antisocial-personality-disorder-overview), [How Sociopaths and Psychopaths are Different](https://www.webmd.com/mental-health/psychopath-sociopath-differences#1)
