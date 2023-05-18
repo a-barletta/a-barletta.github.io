@@ -1,6 +1,10 @@
 ## Wednesday, Paris, and the Morbid Realities of Life, Part I
 
-
+<p align="center">
+      <img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/jenna-ortega-wednesday-800x600.jpg"
+           width="100%"/>
+<p align="center"><em>Jenna Ortega portraying Wednesday Addams in the Netflix show Wednesday. I pulled the image from [this article](https://www.suggest.com/jenna-ortega-portrayal-wednesday-addams-appears-far-cry-original-character/2677944/)</em></p>
+</p>
 
 There is something about Wednesday Addams and Paris Geller. These two characters are driven, intelligent, and rationally-minded more than emotionally. They are not held back by the morbid realities of life, they are further driven by them.
 	
