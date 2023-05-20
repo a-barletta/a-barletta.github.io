@@ -1,6 +1,7 @@
 ## Five Nights at Freddy's Movie Teaser Thoughts
 
 View the [_Five Nights at Freddy's_ teaser](https://www.youtube.com/watch?v=f-zqS2CiZqw) here!
+
 _FNAF_ movie [full cast on IMBD](https://www.imdb.com/title/tt4589218/)
 
 The _Five Nights at Freddy’s_ movie teaser has been released and has been the talk of the theorists ever since. I mentioned in a previous blog post that I love [MatPat](https://www.youtube.com/@GameTheory) and his work, but his reaction and analysis of the _FNAF_ movie teaser made me a little mad. My main argument in this blog post is that I think the analysis of the _FNAF_ movie and any teasers/trailers/lore leaks that are released along the way need a fresh set of eyes to examine them.
