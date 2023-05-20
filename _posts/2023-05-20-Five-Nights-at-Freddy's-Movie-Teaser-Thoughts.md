@@ -8,7 +8,7 @@ The _Five Nights at Freddy’s_ movie teaser has been released and has been the 
 
 MatPat has been making theories about the _Five Nights at Freddy’s_ games since the first game was released in 2014 and has not stopped researching the franchise ever since. He, like many other theorists, probably know way too much about the games because they have analyzed every last detail–or so they think.
 
-It wasn’t until this year that I started watching other _FNAF_ theorists besides MatPat. I have especially gotten into videos from [FuhNaff](https://www.youtube.com/@FuhNaff), [ID’s Fantasy](https://www.youtube.com/@IDsFantasy), and [RyeToast](https://www.youtube.com/@RyeToast) (and his cats). I do not think RyeToast has done a reaction video to the FNAF movie teaser, but the other three have.
+It wasn’t until this year that I started watching other _FNAF_ theorists besides MatPat. I have especially gotten into videos from [FuhNaff](https://www.youtube.com/@FuhNaff), [ID’s Fantasy](https://www.youtube.com/@IDsFantasy), and [RyeToast](https://www.youtube.com/@RyeToast) (and his cats). I do not think RyeToast has done a reaction video to the _FNAF_ movie teaser, but the other three have.
 
 I appreacited [FuhNaff’s reaction](https://www.youtube.com/watch?v=FFX331zFZEg) the most. It was so genuine, and I could tell he was very excited about the movie and the work done to create it. I guess I relate to his reaction more than MatPat’s or ID’s because it was raw and not so much focused on finding every bit of lore within the 48-second teaser video.
 
