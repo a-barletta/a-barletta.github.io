@@ -1,4 +1,4 @@
-## Wednesday, Paris, and the Morbid Realities of Life Part II
+## Wednesday, Paris, and the Morbid Realities of Life, Part II
 
 <p align="center">
   	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Paris%20Geller.jpg"
