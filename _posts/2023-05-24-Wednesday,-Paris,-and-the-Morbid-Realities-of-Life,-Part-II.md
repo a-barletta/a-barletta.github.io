@@ -6,6 +6,7 @@
 <p align="left">Paris in her element from Season 6, Episode 10, "He's Slippin' 'Em Bread...Dig?"</p>
 </p>
 
+
 Welcome to part II, where we begin to talk about Paris Geller. She and Wednesday Addams are very different characters, but both are extremely driven and motivated, much more so than the average person.
 	
 There are very few things that upset Paris enough to send her panicking and fretting. When she didn’t get into Harvard, she fell into a slump and stopped caring, and caring is one of her main character traits!
