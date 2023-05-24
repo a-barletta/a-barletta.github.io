@@ -6,6 +6,7 @@
 <p align="left">Jenna Ortega portraying Wednesday Addams in the Netflix show <em>Wednesday.</em> I pulled the image from <a href="https://www.suggest.com/jenna-ortega-portrayal-wednesday-addams-appears-far-cry-original-character/2677944/">this article.</a></p>
 </p>
 
+
 There is something about Wednesday Addams and Paris Geller. These two characters are driven, intelligent, and rationally-minded more than emotionally. They are not held back by the morbid realities of life, they are further driven by them.
 	
 Why?
