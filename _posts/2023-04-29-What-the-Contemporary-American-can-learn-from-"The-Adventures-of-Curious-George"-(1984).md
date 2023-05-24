@@ -6,6 +6,7 @@
 <p align="left">Screenshot from "Curious George Goes to the Hospital" on YouTube.</p>
 </p>
 
+
 I recently remembered a VHS tape I watched during my childhood that contained “Frog and Toad are Friends” (1985), “Frog and Toad Together” (1987), “Morris goes to School” (1989), “Morris has a Cold” (1993), “Curious George” (1984), and “Curious George goes to the Hospital” (1982). These were all separate videos composed by [John Clark Matthews](https://www.jcm51.com/videos). I have fond memories of watching these videos with my siblings when I was younger, and enjoyed watching them again on YouTube. However, as an American adult living in the 21st century, I feel there is a lot to be learned from these videos, particularly the Curious George videos.
 	
 Before reading further, I highly recommend watching the Curious George videos on YouTube. Here are the links: [“Curious George.”](https://www.youtube.com/watch?v=-AerL1lXpqo) [“Curious George goes to the Hospital.”](https://www.youtube.com/watch?v=lSFNSEzgQaA) However, I have provided a brief synopsis of both videos:
