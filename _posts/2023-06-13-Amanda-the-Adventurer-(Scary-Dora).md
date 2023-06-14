@@ -8,7 +8,7 @@
 
 Recently, I watched [Markiplier](https://www.youtube.com/user/markipliergame) play [_Amanda the Adventurer_](https://www.youtube.com/watch?v=kKmx7fMJnsc), a _Dora the Explorer_-esque horror game created by [MANGLEDmaw Games](https://mangledmaw.itch.io/). It is a “found-footage” game involves a series of VHS tapes and puzzles to solve..
 
-*Warning* there are spoilers about the game in this article. If you do not want any spoilers, I suggest you watch your favorite YouTube gamers play it before reading any further.
+*Warning there are spoilers about the game in this article. If you do not want any spoilers, I suggest you watch your favorite YouTube gamers play it before reading any further.
 
 The story of _Amanda the Adventurer_ is that in the early 2000s, a man named Sam Colton is inspired by his adopted daughter, Rebecca, to create a television series where Rebecca plays the main character, Amanda. She goes on adventures throughout the neighborhood, and kids in the fictional town of Kensdale, Ohio, where the game takes place, fall in love with the show. 
 
