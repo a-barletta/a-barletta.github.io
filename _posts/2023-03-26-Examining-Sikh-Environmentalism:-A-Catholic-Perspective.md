@@ -2,7 +2,7 @@
 
 So many religions are trying to address the environmental crisis the earth is facing. Each religion brings different perspectives to the table, and I would like to look at Sikhism in particular for this post.
 
-There is an idea within the Sikh religion that humans treat the non-human nature how they feel on the inside. Dr. Rajwant Singh, Founder EcoSikh, wrote, "The current instability of the natural system of the earth - the external environment of human beings, is only a reflection of the instability and pain within humans." I will provide a link to his essay, "Environmental Theology in Sikhism" at the end of this post. 
+There is an idea within the Sikh religion that humans treat the non-human nature how they feel on the inside. Dr. Rajwant Singh, Founder of EcoSikh, wrote, "The current instability of the natural system of the earth - the external environment of human beings, is only a reflection of the instability and pain within humans." I will provide a link to his essay, "Environmental Theology in Sikhism" at the end of this post. 
 
 The idea offers an much different insight into environmental issues from what I was taught growing up. As someone who was baptized and confirmed into the Roman Catholic Church, I was taught about ways to "do my part" to help the environment. When I grew older, I began to wonder why all of my efforts, as well as the efforts in my household to make the planet cleaner and healthier, did not seem to help.
 
