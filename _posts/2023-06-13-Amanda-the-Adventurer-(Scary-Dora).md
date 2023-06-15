@@ -30,7 +30,7 @@ I think when Rebecca started to act up and change the events of the show, parent
 
 To make matters worse, the disappearance of Sam was all over the news, so Hameln Entertainment was getting more bad publicity not only within Kensdale, but likely outside of the town as well. Their crisis communication was decent in that it covered up any misdoings on their part and scapegoated Sam, but that didn’t solve the fact that parents still didn’t want their children watching the show. Hameln decided to strike back.
 
-They used Rebecca to lure children away from their homes, likely to get them into the studio where Hameln Entertainment was working on Amanda teh Adventurer. This is when those children’s souls were transferred into the show. It broke their parents’ hearts. 
+They used Rebecca to lure children away from their homes, likely to get them into the studio where Hameln Entertainment was working on _Amanda the Adventurer_. This is when those children’s souls were transferred into the show. It broke their parents’ hearts. 
 
 In [MatPat’s Game Theory video](https://www.youtube.com/watch?v=yXjSnZb0eqY), he talks about how Hameln Entertainment is like the Pied Piper, who helps the people of Hamelin get rid of the rats infesting the town. However, the town does not pay him for his services, so he lures their children away to their deaths (depending on which version you read, this does not happen in the kid-friendly version). MatPat theorized that Hameln used Rebecca to summon the demons to gain their knowledge/power, but I think their main objective was to get back at Kensdale for giving them a bad name. That’s business for you.
 
