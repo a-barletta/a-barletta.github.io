@@ -6,7 +6,7 @@ Since she became famous, she has been taken advantage of, had her heart broken m
 
 I’m happy to report that that is not the way it is anymore. Taylor took control of her own career and is able to enjoy making music while also loving herself. I think one of her best songs is [_You’re On Your Own, Kid_](https://www.youtube.com/watch?v=7Gbg6Z70J7E), and we need to talk about it.
 
-I will now provide a break down of each stanza of the song and analyze it. This song is a story of her journey, navigating her career and her relationships as well as finding herself. These lyrics came from [Genius Lyrics](https://genius.com/Taylor-swift-youre-on-your-own-kid-lyrics).
+I will now provide a breakdown of each stanza of the song and analyze it. This song is a story of her journey, navigating her career and her relationships as well as finding herself. The lyrics I used came from [Genius Lyrics](https://genius.com/Taylor-swift-youre-on-your-own-kid-lyrics).
 
 _Verse 1_
 Summer went away, still, the yearning stays
@@ -50,7 +50,7 @@ Just to learn that my dreams aren't rare
 You're on your own, kid
 You always have been
 
-Soon, Taylor leaves Reading, but realizes she will have a lot of competition. She has to work hard to get recognized by a talent agent. She is on her own once again.
+Soon, Taylor left Reading, but realized she would have a lot of competition. She had to work hard to get recognized by a talent agent. She was on her own once again.
 
 _Bridge_
 From sprinkler splashes to fireplace ashes
@@ -72,7 +72,7 @@ This is the most heartbreaking part of the song. Taylor lists all she had been p
 
 But what is the thing “they can’t take away?” I think it’s her music. Music is why Taylor did all of this in the first place–it is her passion. This line was Taylor saying “Oh, you have an issue with me/my career? Sounds like a you problem.”
 
-And the last few lines are Taylor looking back at her younger self and telling her to take more risks and be present in the moment. Stop worrying about everyone else. You are who you are no matter what anybody else says.
+And the last few lines are Taylor looking back at her younger self and telling her to take more risks and be present in the moment. Stop worrying about everyone else. You are who you are no matter what anybody says.
 
 _Final Chorus_
 You're on your own, kid
@@ -80,7 +80,7 @@ Yeah, you can face this
 You're on your own, kid
 You always have been
 
-What a beautiful ending to this song of reflections of past memories and mistakes. Through it all, Taylor Swift remained a name you cannot spit on because she is never going away. She make music until she’s dead and there is absolutely nothing you can do about it. She does not need you to like her, but if you do, she’ll be happy to have you singing along with her in the car, dancing in your house, or even one of her concerts.
+What a beautiful ending to this song of reflections, past memories, and mistakes. Through it all, Taylor Swift remained a name you cannot spit on because she is never going away. She make music until she’s dead and there is absolutely nothing you can do about it. She does not need you to like her, but if you do, she’ll be happy to have you singing along with her in the car, dancing in your house, or even one of her concerts.
 
 <p align="center">
       <img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Taylor.jpg"
