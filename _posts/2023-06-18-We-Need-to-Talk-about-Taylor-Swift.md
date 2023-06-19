@@ -84,7 +84,7 @@ What a beautiful ending to this song of reflections, past memories, and mistakes
 <p align="center">
       <img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Taylor.jpg"
   		 width="100%"/>
-<p align="left">Photo of Taylor singsing "tolerate it" from her <em>evermore<em> album. I took this photo at The Eras Tour on June 16 in Pittsburgh.</p>
+<p align="left">Photo of Taylor singsing "tolerate it" from her <em>evermore</em> album. I took this photo at The Eras Tour on June 16 in Pittsburgh.</p>
 </p>
 
 As someone who attended one of the Eras Tour concerts in Pittsburgh, I must say it truly is a different experience seeing an artist in person as opposed to in a music video. Taylor Swift was my first concert ever, and I’m glad it was. I don’t think anyone could ever top her, either.
