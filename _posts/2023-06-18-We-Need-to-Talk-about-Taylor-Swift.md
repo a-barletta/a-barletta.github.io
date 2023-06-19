@@ -9,62 +9,103 @@ I’m happy to report that that is not the way it is anymore. Taylor took contro
 I will now provide a breakdown of each stanza of the song and analyze it. This song is a story of her journey, navigating her career and her relationships as well as finding herself. The lyrics I used came from [Genius Lyrics](https://genius.com/Taylor-swift-youre-on-your-own-kid-lyrics).
 
 _Verse 1_
+
 Summer went away, still, the yearning stays
+
 I play it cool with the best of them
+
 I wait patiently, he's gonna notice me
+
 It's okay, we're the best of friends
+
 Anyway
+
 I hear it in your voice, you're smoking with your boys
+
 I touch my phone as if it's your face
+
 I didn't choose this town, I dream of getting out
+
 There's just one who could make me stay
+
 All my days
 
 This is about Taylor’s growing up and falling in love in her hometown of Reading, Pennsylvania. She indicates that she would have given up her dream of “getting out” of her hometown for one person, who either wasn’t enough or didn’t feel the same way she did.
 
 _Chorus_
+
 From sprinkler splashes to fireplace ashes
+
 I waited ages to see you there
+
 I search the party of better bodies
+
 Just to learn that you never cared
+
 You're on your own, kid
+
 You always have been
 
 This feels like a high school party to me. She waited for that special person to show up and they didn’t, so she decided she was on her own. It was time to leave Reading and her old life behind to become a musician.
 
 _Verse 2_
+
 I see the great escape,
+
 so long, Daisy May
+
 I picked the petals, he loves me not
+
 Something different bloomed, writing in my room
+
 I play my songs in the parking lot
+
 I'll run away
 
 This verse is all about Taylor realizing she wanted to become a musician and deciding she will do whatever it takes to achieve that dream. She plays the songs she writes and hopes she will get recognized.
 
 _Chorus_
+
 From sprinkler splashes to fireplace ashes
+
 I called a taxi to take me there
+
 I search the party of better bodies
+
 Just to learn that my dreams aren't rare
+
 You're on your own, kid
+
 You always have been
 
 Soon, Taylor left Reading, but realized she would have a lot of competition. She had to work hard to get recognized by a talent agent. She was on her own once again.
 
 _Bridge_
+
 From sprinkler splashes to fireplace ashes
+
 I gave my blood, sweat, and tears for this
+
 I hosted parties and starved my body
+
 Like I'd be saved by a perfect kiss
+
 The jokes weren't funny 
+
 I took the money
+
 My friends from home don't know what to say
+
 I looked around in a blood-soaked gown
+
 And I saw something they can't take away
+
 'Cause there were pages turned with the bridges burned
+
 Everything you lose is a step you take
+
 So, make the friendship bracelets, take the moment and taste it
+
 You've got no reason to be afraid
 
 
@@ -75,9 +116,13 @@ But what is the thing “they can’t take away?” I think it’s her music. Mu
 And the last few lines are Taylor looking back at her younger self and telling her to take more risks and be present in the moment. Stop worrying about everyone else. You are who you are no matter what anybody says.
 
 _Final Chorus_
+
 You're on your own, kid
+
 Yeah, you can face this
+
 You're on your own, kid
+
 You always have been
 
 What a beautiful ending to this song of reflections, past memories, and mistakes. Through it all, Taylor Swift remained a name you cannot spit on because she is never going away. She make music until she’s dead and there is absolutely nothing you can do about it. She does not need you to like her, but if you do, she’ll be happy to have you singing along with her in the car, dancing in your house, or even one of her concerts.
