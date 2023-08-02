@@ -1,0 +1,41 @@
+## _The Owl House_, or the world if people actually cared
+
+I know it’s been a while since I’ve posted anything. Don’t worry, I haven’t run out of opinions, just time, energy, and motivation. I did not create this blog to become a slave to social media–this is just for fun. The minute it stops being fun is the minute I stop doing it, so I take breaks sometimes.
+
+Today, I want to talk about a TV show that I don’t think gained as much interest as it could have, considering it was very well written and produced. It’s _The Owl House_!
+
+I started watching [_The Owl House_](https://theowlhouse.fandom.com/wiki/The_Owl_House_(series)) at some point in college because I knew [Dana Terrace](https://en.wikipedia.org/wiki/Dana_Terrace), the creator of the show, had a role in [_Gravity Falls_](https://gravityfalls.fandom.com/wiki/Gravity_Falls_Wiki). Since _Gravity Falls_ is one of my favorite shows of all time, I thought I’d give _The Owl House_ a look. 
+
+The show premiered in 2020 and at first, seemed to be yet another show about a girl who doesn’t fit in using fantasy to escape. That might be boring for some people, but since I talked in a previous post about how I didn’t fit in and also used fantasy to escape, [Luz Noceda](https://theowlhouse.fandom.com/wiki/Luz_Noceda) grew on me quickly.
+
+It was so refreshing to see someone who cared so much actually get that same caring in return from those around her. Luz managed to make friends quickly and enemies into friends–it was really impressive to see a young character be as emotionally mature as she is. I know none of it was real, but it did provide some insight into how people can make the world a better place when they start with one another.
+
+I don’t want to address all of the main characters because there are many and a lot of them would give away spoilers, which you know I hate doing. But I think the show’s creator, Dana Terrace, must have put a lot of herself into Luz’s character. Luz is known for making her enemies into her closest friends and believes that everyone deserves a chance to choose goodness.
+
+The entire show is based around a rag-tag group of people becoming close friends and fighting to save each other and their home from someone who wanted to take it away. And, in classic Disney fashion, there is magic involved.
+
+Magic isn’t powered by belief or friendship, but it is much stronger when those who use it believe in themselves and each other. The characters in _The Owl House_ are stronger together because no one person has to bear all the weight on their own, and they are more concerned with keeping one another safe than being heroes, which is something I think a lot of shows and movies like this miss.
+
+Another thing that many TV shows miss is drawing boundaries. Luz, [Willow](https://theowlhouse.fandom.com/wiki/Willow_Park), [Gus](https://theowlhouse.fandom.com/wiki/Gus_Porter), and [Amity](https://theowlhouse.fandom.com/wiki/Amity_Blight) each have their moments in _The Owl House_ where they draw boundaries, which is not something a typical 14-15-year-old knows (unless I seriously missed something in school or at home). And the boundaries they draw are just…respected, for the most part. 
+
+There are numerous misunderstandings throughout the show, but at the very least, the characters try to understand one another, minus the outliers who are so focused on themselves they are blind to what others are going through. 
+
+I feel many of the people who watch the show can relate to Amity, who followed what her parents said for so long that she didn’t get to choose her own friends until high school. She worked so hard to please her absent father and her preoccupied mother, so she never felt good enough for them. Yet, all it took was Luz, one person who cared enough to get to know Amity Blight, and she became a much different person than who her parents taught her to be.
+
+Not to mention, _The Owl House_ is adorable! The animation style as well as the music played during the theme song and the end credits is just fabulous! This is the show I will refer to as “what the world would be like if people cared.” The world would be a nicer place if everyone cared about each other as much as Luz, [Eda](https://theowlhouse.fandom.com/wiki/Eda_Clawthorne), and [King](https://theowlhouse.fandom.com/wiki/King). The world would be a better place if people cared as much about each other as Dana Terrace cared about this show.
+
+But, you can’t force people to care about each other. I’ve seen enough online content about people who do “social experiments” where they pretend to need help and reward those who help them, punish those who don’t, etc. Then I turn around and see videos talking about people who get scammed by those pretending they need help. Everything is so uncertain in the worst way possible.
+
+I’ve tried treating people with kindness, even when they treat me poorly. I get walked all over. I get no respect. Other times, people truly do warm up to me if I don’t give up. Luz never gave up, even in a world that told her not to waste her time on people who treat her badly.
+
+Let me make this clear: boundaries are extremely important, and I don’t think it’s a bad thing if you don’t want to deal with people who won’t give you the time of day. What I do think this mindset started doing to people, however, is that it made us all too focused on ourselves. It doesn’t allow us to balance our own needs with the needs of those around us, and we are no better than [Odalia Blight](https://theowlhouse.fandom.com/wiki/Odalia_Blight) for that.
+
+Finding a balance is so important nowadays, especially in a culture where people can say anything they want on the internet. I’ve seen countless videos where people will say “stop depending on others for your own happiness,” but they never say what that actually means. When my friends let me down and I’m upset, does that mean I was too dependent on them for my own happiness? I don’t think it does. I don’t think being a naturally social being (which humans are) makes us dependent upon one another for our own happiness.
+
+At the same time, what does it mean to make our own happiness? I, and many others I know, feel the constant pressure to finish school and get a job and get married and buy a house and have kids and move up the corporate ladder and grow old together and work all the time but take care of your kids and take time for yourself and get enough rest and eat healthy and exercise and have a side hustle or two and engage online using social media and…that’s causing a lot of hatred among different generations, but it also doesn’t indicate what about any of that actually makes people happy. It’s just “what you’re supposed to do.” But that’s a lot to take in, especially in one single lifetime, so many people do not do all of these things I’ve mentioned. They are made to feel they have fallen short, just like Luz, Willow, Gus, Amity, and [Hunter](https://theowlhouse.fandom.com/wiki/Hunter).
+
+_The Owl House_ addresses that there is no one way to live. Eda is happy as a single wild witch, and [Lilith](https://theowlhouse.fandom.com/wiki/Lilith_Clawthorne) is miserable being part of the [Emperor’s Coven](https://theowlhouse.fandom.com/wiki/Emperor%27s_Coven), even though that is what she wanted as a young child and thought it was what she was supposed to do. She is much happier when she makes real friends who she can depend on, though she lives in an unconventional way (I will not elaborate because again, spoilers). Luz is happy being who she is, whether anyone understands it or not. Willow is happy helping her friends be the best they can be. The list goes on.
+
+And if I had to guess, none of the characters in _The Owl House_ would even think about living the way most people in the [Human Realm](https://theowlhouse.fandom.com/wiki/Human_Realm) do. They depend on each other because they have built up enough trust among one another that they can–which today’s people are never encouraged to do (once again, the fear and uncertainty about people and their intentions).
+
+I just think it would be so rad to get to a point where people can trust one another again. _The Owl House_ has shown me that it doesn’t take a little bit of magic, but a little bit of kindness.
