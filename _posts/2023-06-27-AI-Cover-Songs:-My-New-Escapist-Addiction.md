@@ -8,7 +8,7 @@
 
 Hello friends! Since everyone is so afraid of AI (and don’t get me wrong, it’s scary), I thought I could talk about the lighter side of AI–cover songs.
 	
-Lately, the news has been about some especially depressing things, like the [Titanic submarine implosion](https://www.bbc.com/news/world-us-canada-65934887) and the [wildfires in Canada](https://apnews.com/video/wildfires-floods-politics-canada-government-justin-trudeau-44d34215d724416098659284c71499ad). I need some good vibes to keep myself sane at the moment, so I’m going to spend the next several paragraphs talking about my favorite AI cover songs by artists such as Songebob and the gang, Mordecai and Rigby from _Regular Show_, and even Markiplier.
+Lately, the news has been about some especially depressing things, like the [Titanic submarine implosion](https://www.bbc.com/news/world-us-canada-65934887) and the [wildfires in Canada](https://apnews.com/video/wildfires-floods-politics-canada-government-justin-trudeau-44d34215d724416098659284c71499ad). I need some good vibes to keep myself sane at the moment, so I’m going to spend the next several paragraphs talking about my favorite AI cover songs by artists such as Spongebob and the gang, Mordecai and Rigby from _Regular Show_, and even Markiplier.
 	
 I think these cover songs are honestly a good use of AI. The AI isn’t creating a song, just remaking one. I admit, I’m not sure how exactly everything blows over with copyrighted material, which most of the songs being covered are. However, it’s not harming the future careers of current musical artists, so it isn't taking anyone’s job away as far as I know.
 
