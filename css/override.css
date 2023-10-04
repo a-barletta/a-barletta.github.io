@@ -22,8 +22,8 @@ hr {
 
 /* this wrapper changes the width, padding, and margins of a page */
 .wrapper {
-    max-width: -webkit-calc(800px - (30px * 2));
-    max-width: calc(900px - (30px * 2)); /* this line changes the width */
+    max-width: -webkit-calc(750px - (30px * 2));
+    max-width: calc(750px - (30px * 2)); /* this line changes the width */
     margin-right: auto;
     margin-left: auto;
     padding-right: 30px;
