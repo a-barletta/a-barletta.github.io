@@ -1,10 +1,6 @@
 ## Pretty Privilege and the Pick-Me Girl
 
-<p align="center">
-  	<img src="https://rawcdn.githack.com/a-barletta/a-barletta.github.io/43caa829f01dbb69312cecf8f76f6cc772f00cbd/images/obie-fernandez-0GFNAelMPZA-unsplash.jpg"
-       	width="100%"/>
-<p align="left">Pretty privilege is real and it's tearing us apart.</p>
-</p>
+![image](https://images.unsplash.com/photo-1598316560463-0083295ca902?ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D&auto=format&fit=crop&w=2944&q=80)
 
 
 Pretty privilege is defined as “the idea that people who are viewed as more attractive or “prettier” than others receive more opportunities, attention, and rewards” on [Penn State’s Applied Social Psychology page](https://sites.psu.edu/aspsy/2023/04/06/pretty-privilege/).
