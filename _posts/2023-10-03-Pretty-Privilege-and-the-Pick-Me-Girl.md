@@ -1,7 +1,7 @@
 ## Pretty Privilege and the Pick-Me Girl
 
 <p align="center">
-  	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/obie-fernandez-0GFNAelMPZA-unsplash.jpg"
+  	<img src="https://rawcdn.githack.com/a-barletta/a-barletta.github.io/43caa829f01dbb69312cecf8f76f6cc772f00cbd/images/obie-fernandez-0GFNAelMPZA-unsplash.jpg"
        	width="100%"/>
 <p align="left">Pretty privilege is real and it's tearing us apart.</p>
 </p>
