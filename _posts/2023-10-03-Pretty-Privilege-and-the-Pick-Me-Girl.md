@@ -1,7 +1,7 @@
 ## Pretty Privilege and the Pick-Me Girl
 
 <p align="center">
-  	<img src="https://unsplash.com/photos/0GFNAelMPZA"
+  	<img src="https://unsplash.com/0GFNAelMPZA"
        	width="100%"/>
 <p align="left">Pretty privilege is real and it's tearing us apart.</p>
 </p>
