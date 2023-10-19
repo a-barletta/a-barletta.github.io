@@ -16,11 +16,11 @@ I briefly mentioned this in my [Midnight Motorist theory](https://a-barletta.git
 
 We know Susie was the first, and we know William lured her away using her dead dog as bait. I believe she is the child playing with the toy animatronic action figures in the playground area. Both characters have the same blonde hair, same pink shirt, and a bow in their hair. It’s hard to tell, but it looks like they both have the same blue eyes as well.
 
-![image](https://i.pinimg.com/originals/83/38/10/833810241be862d96dc6512632894026.jpg)
-This is a photo I pulled from [this](https://www.reddit.com/r/fivenightsatfreddys/comments/3fhx7h/fnaf_4_mini_game_map_and_extras/) Reddit post of the 8-bit map.
-
 ![image](https://external-preview.redd.it/mkSWUGF9gxqxW1AylX6RfMeBG-EVIyZn4xX0TTyVrrA.jpg?auto=webp&s=ccb58300dce68afe9945227c9576d5681aa52e5d)
 
+This is a photo I pulled from [this](https://www.reddit.com/r/fivenightsatfreddys/comments/3fhx7h/fnaf_4_mini_game_map_and_extras/) Reddit post of the 8-bit map.
+
+![image](https://i.pinimg.com/originals/83/38/10/833810241be862d96dc6512632894026.jpg)
 Here is a photo of Susie from the Fuity Maze minigame in Pizzeria Simulator. You can see the side-by-side comparison of Susie in the 8-bit minigame and Suse in Fruity Maze. [Photo credit](https://br.pinterest.com/pin/839851030487351250/).
 
 
