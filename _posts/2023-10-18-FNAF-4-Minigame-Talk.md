@@ -20,6 +20,7 @@ We know Susie was the first, and we know William lured her away using her dead d
 This is a photo I pulled from [this](https://www.reddit.com/r/fivenightsatfreddys/comments/3fhx7h/fnaf_4_mini_game_map_and_extras/) Reddit post of the 8-bit map.
 
 ![image](https://external-preview.redd.it/mkSWUGF9gxqxW1AylX6RfMeBG-EVIyZn4xX0TTyVrrA.jpg?auto=webp&s=ccb58300dce68afe9945227c9576d5681aa52e5d)
+
 Here is a photo of Susie from the Fuity Maze minigame in Pizzeria Simulator. You can see the side-by-side comparison of Susie in the 8-bit minigame and Suse in Fruity Maze. [Photo credit](https://br.pinterest.com/pin/839851030487351250/).
 
 
