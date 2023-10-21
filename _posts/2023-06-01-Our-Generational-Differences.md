@@ -2,9 +2,9 @@
 
 Lately, I have been noticing a lot of social media content on our generational differences. Gen Z, Millennials, and Baby Boomers are on a constant loop of maing fun of each other and pointing out each generation’s shortcomings. I guess Generation X is unproblematic enough to not be the target of these posts. I think that’s the generation most of the “Karens” are part of. 
 	
-One of the problems with the constant pointing out of our generational differences is that it further separates and segregates. In a world where stereotyping is more prevalent than ever, one would think we’d want to slow the spread fo stereotypes not only within race and gender, but also age.
+One of the problems with the constant pointing out of our generational differences is that it further separates and segregates. In a world where stereotyping is more prevalent than ever, one would think we’d want to slow the spread of stereotypes not only within race and gender, but also age.
 
-Believe me, I generalize about other generations as a Gen Z-er. I grew up in a different world that the generations before me created, so I don’t think it’s fair for older generations to judge me for how I’m living my life. At the same time, my generation should be more understanding that people of older generations grew up in a different world than I did, and therefore have a different outlook on life.
+Believe me, I generalize about other generations as a Gen Z-er. I grew up in a different world that the generations before me created, so I don’t think it’s fair for older generations to judge me for how I’m living my life. At the same time, my generation should be more understanding that people of older generations grew up in a different world than we did, and therefore have a different outlook on life.
 
 I even see Instagram posts saying “kids these days (Alpha Generation) will never understand…” Not to mention I don’t think it was a good idea to call the new generation of kids the “Alpha Generation” since they’ll grow up thinking they’re the best, but I guess every generation does that anyway.
 
