@@ -1,7 +1,7 @@
 ## The Church of Taylor Swift?
 
 ![image](https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/IMG_6666.jpg)
-A picture of Taylor I snapped at The Eras Tour over the summer.
+A picture of Taylor I snapped at The Eras Tour over the summer. Yes, it's blurry because I zoomed in with the camera.
 
 Yep, you read the title right. The Church of Taylor Swift. Hopefully it doesn’t sound too shocking considering her fanbase is bigger and louder than ever. I have been noticing social media posts talking about the Swifties being a cult, and I’ll be graduating with a Religious Studies minor in the spring, so I was intrigued.
 
