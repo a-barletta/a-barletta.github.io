@@ -8,7 +8,7 @@
 
 Hello all! I hope you’re wearing pink today because it’s Wednesday, and because I want to talk about the [_Barbie_](https://en.wikipedia.org/wiki/Barbie_(film)) movie. Originally, I wanted to make a post about the [_Five Nights at Freddy’s_](https://en.wikipedia.org/wiki/Five_Nights_at_Freddy%27s_(film)) movie, but since I haven’t written about the _Barbie_ movie yet, I thought it would be disrespectful to skip over it.
 
-Specifically, this post is dedicated to the color pink and how since I grew up, it has come to represent a lot of things. From the stereotype that pink is every little girl’s favorite color, to the “Real men wear pink” idea, this color in particular seems to have a lot of representation when it comes to gender identity and sexuality.
+Specifically, this post is dedicated to the color pink and how since I grew up, it has come to represent a lot of things. From the stereotype that pink is every little girl’s favorite color, to the “Real men wear pink” idea, this color in particular seems to have a lot of representation when it comes to gender identity.
 
 The color’s very presence in the _Barbie_ movie almost deterred one of my coworkers from going to see the movie. She didn’t like the stereotype that all little girls have to like pink or wear pink, and I explained to her that’s not really what the _Barbie_ movie is about. Barbie herself wears different colors in her outfits each day, and in the opening song, titled “[Pink](https://www.youtube.com/watch?v=8uIxoCs7iv8)” of course, Lizzo sings, “We like other colors, but pink just looks so good on us.”
 
