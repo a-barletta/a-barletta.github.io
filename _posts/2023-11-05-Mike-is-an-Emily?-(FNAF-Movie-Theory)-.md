@@ -3,7 +3,7 @@
 <p align="center">
   	<img src="https://www.comingsoon.net/wp-content/uploads/sites/3/2023/11/FNAF-actors-strike.jpg?resize=203"
        	width="100%"/>
-<p align="left">Josh Hutcherson killed it as Mike Schmidt in the <em>Five Nights at Freddy's</em> movie. I pulled the image from <a href="[https://vogue.sg/barbie-movie-fashion-costume-designer/](https://www.comingsoon.net/guides/news/1387553-five-nights-at-freddys-movie-why-fnaf-actors-on-strike-striking)">this article.</a></p>
+<p align="left">Josh Hutcherson killed it as Mike Schmidt in the <em>Five Nights at Freddy's</em> movie. I pulled the image from <a href="https://www.comingsoon.net/guides/news/1387553-five-nights-at-freddys-movie-why-fnaf-actors-on-strike-striking">this article.</a></p>
 </p>
 
 Well, I have taken a small break to think about the [_Five Nights at Freddy’s_ movie](https://en.wikipedia.org/wiki/Five_Nights_at_Freddy%27s_(film)) and now it is time to get to work. Today I hope to answer the question who the characters are in the _FNAF_ movie and how do each of them into the story?
