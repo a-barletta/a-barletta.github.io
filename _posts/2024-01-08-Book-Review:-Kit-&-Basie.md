@@ -1,4 +1,4 @@
-## Book Review: _Kit /& Basie_
+## Book Review: _Kit \& Basie_
 
 <p align="center">
   	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Kit%20%26%20Basie%20Cover.png"/>
