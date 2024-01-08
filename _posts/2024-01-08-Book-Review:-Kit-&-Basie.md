@@ -1,4 +1,4 @@
-<h2>Book Review: _Kit \& Basie_</h2>
+<h2>Book Review: Kit &amp Basie</h2>
 
 <p align="center">
   	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Kit%20%26%20Basie%20Cover.png"/>
