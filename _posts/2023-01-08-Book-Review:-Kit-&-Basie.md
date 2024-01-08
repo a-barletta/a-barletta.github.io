@@ -2,7 +2,7 @@
 
 <p align="center">
   	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Kit%20%26%20Basie%20Cover.png"/>
-<p align="left">This is the cover image of Tess Carletta's novel, _Kit & Basie_</p>
+<p align="left">This is the cover image of Tess Carletta's novel, <em>Kit & Basie</em>em></p>
 </p>
 
 Hello everyone! Today I wanted to write something a little different as I just finished reading _Kit & Basie: Tales from Long Lily, 1_ by Tess Carletta. This post contains my honest review of it.
