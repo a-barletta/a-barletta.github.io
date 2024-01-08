@@ -1,5 +1,10 @@
 ## Book Review: _Kit & Basie_
 
+<p align="center">
+  	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Kit%20%26%20Basie%20Cover.png"/>
+<p align="left">This is the cover image of Tess Carletta's novel, _Kit & Basie_</p>
+</p>
+
 Hello everyone! Today I wanted to write something a little different as I just finished reading _Kit & Basie: Tales from Long Lily, 1_ by Tess Carletta. This post contains my honest review of it.
 
 For starters, I began reading it sometime in October 2023. I tried to find the motivation to read non-school books, which you think would be easy since I’m an English major, but no. I hardly have motivation to read what I need to for school assignments. Regardless, I really wanted to read this book, and I was captivated immediately by the characters and imagery.
