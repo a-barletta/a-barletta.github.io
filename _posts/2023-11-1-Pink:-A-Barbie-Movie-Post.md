@@ -20,7 +20,7 @@ This is why the Kens have an uprising, and why Barbie tells Ken to discover who 
 
 It’s okay to not like the _Barbie_ movie, but don’t hate others for liking it. Those who liked the _Barbie_ movie probably just needed someone to articulate how it feels when you are on the receiving end of gender binaries and stereotypes. 
 
-[Greta Gerwig](https://en.wikipedia.org/wiki/Greta_Gerwig) and [Noah Baumbach](https://en.wikipedia.org/wiki/Noah_Baumbach), writers of _Barbie_, took the direction of putting men into the traditionally female role, and what do you know? A lot of men lost their minds. Again, yeah. That’s the point. Any person in their right mind would lost it if they were oppressed just because they were born into one gender.
+[Greta Gerwig](https://en.wikipedia.org/wiki/Greta_Gerwig) and [Noah Baumbach](https://en.wikipedia.org/wiki/Noah_Baumbach), writers of _Barbie_, took the direction of putting men into the traditionally female role, and what do you know? A lot of men lost their minds. Again, yeah. That’s the point. Any person in their right mind would lose it if they were oppressed just because society favors one gender over the other and they were born into the wrong one.
 
 And certainly, now that pink has begun to bring women joy, it’s a problem. Any woman who likes the color pink is now accused of perpetuating gender stereotypes when in fact they are trying to break them. The _Barbie_ movie tried to show women and girls that it’s okay to like the color pink, it’s not just a color for little girls and it also doesn’t have to be every little girl’s favorite color. They don’t even have to like pink, but they should be able to like whatever color they want without judgement.
 
@@ -32,7 +32,7 @@ And they were right. All of the outer influences in my life taught me that the c
 
 I’m finally starting to get back into pink nowadays. The walls in my old room are still “Delicate Rose.” We never painted over them, and it’s a pretty shade of pink. Six-year-old Ashley had good taste.
 
-So, what we learn from this (hopefully) is that while pink is not a universal color, it’s also not limited to only young girls or only women/femininity. The _Barbie_ movie helped me realize how much I love pink and to start embracing it instead of punching it away. 
+So, what we learn from this (hopefully) is that while pink is not a universal color, it’s also not limited to only young girls or only women/femininity. The _Barbie_ movie helped me realize how much I love pink and to start embracing it instead of pushing it away. 
 
 I recognize that a lot of young girls’ toys and clothing are pink, but I’m glad clothing stores are beginning to give young girls more options. I think this will play a bigger role than people realize in helping young girls be their authentic selves.
 
@@ -44,6 +44,6 @@ Recommended Reading:
 
 Cherry, Kendra, MSEd. “[The Color Psychology of Pink](https://www.verywellmind.com/the-color-psychology-of-pink-2795819).” verywellmind.com, 14 Nov 2022.
 
-Recommended Watching:
+Recommended Viewing:
 
 _Barbie_. Directed by [Greta Gerwig](https://en.wikipedia.org/wiki/Greta_Gerwig), performances by [Margot Robbie](https://en.wikipedia.org/wiki/Margot_Robbie), [Ryan Gosling](https://en.wikipedia.org/wiki/Ryan_Gosling), and [America Ferrera](https://en.wikipedia.org/wiki/America_Ferrera), 2023. 
