@@ -1,5 +1,5 @@
 ---
-title: "Book Review: <em>Kit & Basie</em>"
+title: "Book Review: Kit & Basie"
 ---
 
 <p align="center">
