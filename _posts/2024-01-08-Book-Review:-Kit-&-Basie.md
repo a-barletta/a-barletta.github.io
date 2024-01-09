@@ -1,4 +1,6 @@
-<h2>Book Review: <em>Kit &amp; Basie</em></h2>
+---
+title: _Kit & Basie_
+---
 
 <p align="center">
   	<img src="https://raw.githubusercontent.com/a-barletta/a-barletta.github.io/main/images/Kit%20%26%20Basie%20Cover.png"/>
