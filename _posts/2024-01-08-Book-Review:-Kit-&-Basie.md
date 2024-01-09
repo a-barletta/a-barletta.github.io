@@ -1,5 +1,6 @@
 ---
-title: "Book Review: Kit & Basie"
+{{safeHTML title}}
+title: "Book Review: <em>Kit & Basie</em>"
 ---
 
 <p align="center">
