@@ -1,5 +1,5 @@
 ---
-title: _Kit & Basie_
+title: Book Review: Kit & Basie
 ---
 
 <p align="center">
