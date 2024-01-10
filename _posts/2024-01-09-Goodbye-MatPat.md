@@ -16,6 +16,6 @@ The first video I ever watched of MatPat’s was his very first FNAF theory. I w
 
 So, thank you MatPat and Stephanie, and the rest of the theorist team for all you do. Discovering your channel in 2014 at a time when I should have been asleep has led me on a journey I may otherwise have never taken any interest in. Thank you so much.
 
-https://www.youtube.com/watch?v=8R1_TqU68yo
+[MatPat's Goodbye video](https://www.youtube.com/watch?v=8R1_TqU68yo)
 
-https://www.youtube.com/watch?v=th_LYe97ZVc&t=381s
+[MatPat's first FNAF theory](https://www.youtube.com/watch?v=th_LYe97ZVc&t=381s)
