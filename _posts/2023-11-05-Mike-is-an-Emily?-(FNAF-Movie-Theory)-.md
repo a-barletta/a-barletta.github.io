@@ -6,7 +6,7 @@
 <p align="left">Josh Hutcherson killed it as Mike Schmidt in the <em>Five Nights at Freddy's</em> movie. I pulled the image from <a href="https://www.comingsoon.net/guides/news/1387553-five-nights-at-freddys-movie-why-fnaf-actors-on-strike-striking">this article.</a></p>
 </p>
 
-Well, I have taken a small break to think about the [_Five Nights at Freddy’s_ movie](https://en.wikipedia.org/wiki/Five_Nights_at_Freddy%27s_(film)) and now it is time to get to work. Today I hope to answer the question who the characters are in the _FNAF_ movie and how do each of them into the story?
+Well, I have taken a small break to think about the [_Five Nights at Freddy’s_ movie](https://en.wikipedia.org/wiki/Five_Nights_at_Freddy%27s_(film)) and now it is time to get to work. Today I hope to answer the question of who the characters are in the _FNAF_ movie and how each of them fit into the story.
 
 I’d like to start with [Garrett](https://freddy-fazbears-pizza.fandom.com/wiki/Garrett_Schmidt), who I believe is the kidnapped victim who becomes the [Puppet](https://freddy-fazbears-pizza.fandom.com/wiki/The_Puppet?so=search). According to some videos I’ve seen floating around YouTube, like [this](https://www.youtube.com/watch?v=DJOgNlallwg) one by Brensnorf, Garrett is meant to be a parallel to [Charlie](https://freddy-fazbears-pizza.fandom.com/wiki/Charlotte_Emily). This lines up since the secret message “Come find me” comes up during the [end credits](https://www.youtube.com/watch?v=u1B-uee26dE).
 
