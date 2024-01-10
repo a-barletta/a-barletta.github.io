@@ -15,3 +15,7 @@ But anyway, all types of content creation are difficult, and when it comes to so
 The first video I ever watched of MatPat’s was his very first FNAF theory. I was in seventh grade. Now I’m in my last year of college, doing everything I can to be prepared for whatever the world throws at me. This means I have been watching MatPat for almost half of my life, and he has encouraged me to use my brain to do things I find fun and rewarding, because the theorizing I do on this blog is never going to be graded–I just get to enjoy it.
 
 So, thank you MatPat and Stephanie, and the rest of the theorist team for all you do. Discovering your channel in 2014 at a time when I should have been asleep has led me on a journey I may otherwise have never taken any interest in. Thank you so much.
+
+https://www.youtube.com/watch?v=8R1_TqU68yo
+
+https://www.youtube.com/watch?v=th_LYe97ZVc&t=381s
