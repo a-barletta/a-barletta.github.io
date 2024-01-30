@@ -3,6 +3,10 @@ layout: page
 title: My Academic Work
 ---
 
-"Light into Dark Lady Sonnets: Beauty and Perception" was accepted into the 2022 Sigma Tau Delta National Convention. I wrote it for my Reniassance Literature class.
+Welcome to my academic work page! Below you will find links to different essays I have written over the years. Each is in a Google Docs format. Thanks for reading!
 
-<iframe src="https://rawcdn.githack.com/a-barletta/a-barletta.github.io/5ed6d425c760174de7d9458fe143c60ba4a6f826/Light%20into%20Dark%20Lady%20Sonnets_%20Beauty%20and%20Perception.docx.pdf" width="100%" height="1000px"></iframe>
+["Light Into Dark Lady Sonnets"](https://docs.google.com/document/d/1F_iDVwCYaXlXhSUyAeOVgzhTg6AdHDWu/edit?usp=sharing&ouid=102324141682450233373&rtpof=true&sd=true)
+
+["Reclaiming Victimhood: Mrs. Dalloway's Hidden Strength"](https://docs.google.com/document/d/1NTrMlSZs5C5H72okIDpewwB782-B4f7s2zKTiWuwDUE/edit?usp=sharing)
+
+["Joe Trace and the Hero Upside Down"](https://docs.google.com/document/d/1V_iJ7LXgM6lVChh0HyBbEDBT7ZrKXSIGB9AZuuSOfaU/edit?usp=sharing)
