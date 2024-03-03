@@ -27,7 +27,7 @@ While some with pretty privilege like to perpetuate it (I honestly would too if 
 
 What I can do is educate myself on pretty privilege and [implicit bias](https://www.dictionary.com/browse/implicit-bias), which is “bias that results from the tendency to process information based on unconscious associations and feelings, even when these are contrary to one’s conscious or declared beliefs” (thanks again Dictionary.com).
 
-We all have biases, many of which happen in our unconscious though since our brains like to take shortcuts. Pretty privilege falls under implicit bias, which people perpetuate through stereotypes.
+We all have biases, many of which happen in our unconscious since our brains like to take shortcuts. Pretty privilege falls under implicit bias, which people perpetuate through stereotypes.
 
 Of course, pretty privilege applies to men too, but I’m speaking from my experience as a woman who was part of a predominantly female graduating class. We were always trying to impress the boys in the grades above us.
 
