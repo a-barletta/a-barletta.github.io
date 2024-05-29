@@ -20,7 +20,7 @@ You can do so much experimentation with AI cover songs, and there is so much out
 
 Here are some of my favorite AI cover songs:  
 [Markiplier sings “Peaches”](https://www.youtube.com/watch?v=Cr98x8m9Z6k)  
-[Mordecai sings “Levitating”](https://www.youtube.com/watch?v=ClIcA6nQFj4), and in [this one](https://www.youtube.com/watch?v=k6fREzLPvZc), Rigby is featured singing DaBaby’s part  
+[Mordecai sings “Levitating”](https://www.youtube.com/watch?v=ClIcA6nQFj4)  
 [Squidward sings “Virtual Insanity”](https://www.youtube.com/watch?v=B6S9ZM3Aa4Q)  
 [Spongebob, Patrick, Squidward, and Mordecai sing “Golden Hour”](https://www.youtube.com/watch?v=SBDp1wUOBZQ)  
 [Mr. Krabs sings “Billie Jean”](https://www.youtube.com/watch?v=DP9EY4xMlTE)  
