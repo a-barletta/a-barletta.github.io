@@ -1,7 +1,7 @@
 ## A Barista Talks About Coffee
 
 <p align="center">
-  	<img src="![Latte Art Dino](https://github.com/a-barletta/a-barletta.github.io/assets/128991503/9e059869-ca28-4419-ac06-107e662aaf60)"
+  	<img src="![](https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Latte%20Art%20Dino.jpg?raw=true)"
        	width="100%"/>
 <p align="left">Interpretive latte art: dino, circa 2023 when I started as a barista.</p>
 </p>
