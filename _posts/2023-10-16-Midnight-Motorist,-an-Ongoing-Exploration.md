@@ -45,3 +45,5 @@ Now, I’m not saying I 100% think this theory is correct, but it does provide a
 [This](https://www.youtube.com/watch?v=r5nfaz6ZZKA&list=WL&index=44) video by Brensnorf inspired this theory, so thank you fellow creator! And to the people out there out there who already thought of this theory, please know that I am not trying to copy you, merely add to the conversation.
 
 Thank you for reading and I will follow up with a more in-depth reading of the FNAF 4 8-bit minigame in a later post!
+
+Edit: A lot of people think orange guy is William and the reason he's orange is because he would blend in too much with the background of the minigame if he was purple. This seems like a lazy explanation to me. What color is the car orange guy drives? Purple.
