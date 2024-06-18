@@ -3,7 +3,7 @@
 <p align="center">
   	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Latte%20Art%20Dino.jpg?raw=true"
        	width="100%"/>
-<p align="left">Interpretive latte art: dino, circa 2023 when I started as a barista. Actual image coming soon!</p>
+<p align="left">Interpretive latte art: dino, circa 2023 when I started as a barista.</p>
 </p>
 
 Hi everyone. Here I am again saying I know I haven’t posted in a while. Hopefully I will get back into posting more often now that I am done with college, but be sure to check out my academic work page on this blog!
