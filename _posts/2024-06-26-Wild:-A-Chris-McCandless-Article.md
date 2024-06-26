@@ -43,6 +43,7 @@ And no, I don’t agree that it was suicide, but it was one of those “it is wh
 So, romantic hero? Certainly not. Inconsiderate moron? Nope. Just a man who wanted to get away like the rest of us? Yeah, and he had the courage a lot of us do not have, so his story will be told whether we agree with it or not.
 
 Sources not cited above:
+
 [“Chris McCandless”](https://en.wikipedia.org/wiki/Chris_McCandless)
 
 [“Romanticism” Wikipedia article](https://en.wikipedia.org/wiki/Romanticism#Defining_Romanticism)
