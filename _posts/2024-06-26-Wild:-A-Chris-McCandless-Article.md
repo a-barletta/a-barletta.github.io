@@ -10,7 +10,7 @@ Today, I give my opinion of the decades-long debate over Chris McCandless: roman
 
 To answer this, we must first ask ourselves whether he was lazy, fearless, or just crazy? Most people who have no experience living off of the land learn how to properly live off the land before going out and doing it, but not McCandless. It seems he had the idea in his head that the vagabond lifestyle was for him and he ran with it, literally!
 
-I see a sense of urgency all throughout Chris McCandless’ story. He wanted to run away now, no time to sit down and plan.
+I see a sense of urgency all throughout Chris McCandless’ story. He wanted to run away _now_, no time to sit down and plan.
 
 It probably started with his home life, as it is highly likely his parents were abusive despite their attempts to discredit that notion. McCandless’ sister, Carine, published a book about their growing up called The Wild Truth. 
 
