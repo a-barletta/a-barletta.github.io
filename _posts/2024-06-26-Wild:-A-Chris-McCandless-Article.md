@@ -44,6 +44,9 @@ So, romantic hero? Certainly not. Inconsiderate moron? Nope. Just a man who want
 
 Sources not cited above:
 [“Chris McCandless”](https://en.wikipedia.org/wiki/Chris_McCandless)
+
 [“Romanticism” Wikipedia article](https://en.wikipedia.org/wiki/Romanticism#Defining_Romanticism)
+
 [“Romanticism” The Art and Popular Culture article](https://www.artandpopularculture.com/Romanticism)
+
 [“Isaiah Berlin”](https://en.wikipedia.org/wiki/Isaiah_Berlin)
