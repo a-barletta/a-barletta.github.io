@@ -43,7 +43,7 @@ Next up is Wendy’s Flannel Matcha. This is a matcha latte using our green matc
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Wendy%20Matcha.jpg?raw=true"
   		 width="100%"/>
-<p align="left">This drink is honestly my favorite of all of our specials. I wasn't a big matcha drinker before I tried this, but something about the maple and espresso together with the earthy taste of the green matcha makes it taste like breakfast in a cup!</p>
+<p align="left">This drink is honestly my favorite of all of our specials. I wasn't a big matcha drinker before I tried this, but something about the maple and espresso together with the earthy flavor of the green matcha makes it taste like breakfast in a cup!</p>
 </p>
 
 The final drink special is the Bill Cipher Chai. We use a [banana fruit concentrate](https://wentbananas.com/banana-extract-recipe/) with our [chai syrup](https://www.monin.com/us/chai-tea-concentrate?productsize=688&utm_source=bing&utm_medium=cpc&utm_campaign=OMG%20%7C%20BNG%20%7C%20SH%20%7C%20NB%20%7C%20All%20Products&utm_term=4583657819536570&utm_content=All%20Products) and milk! That’s it. Easy-peesy.
