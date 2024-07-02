@@ -18,7 +18,9 @@ It probably started with his home life, as it is highly likely his parents were 
 
 McCandless is a romanticized figure because of this lifestyle. I think a lot of people wish they had the courage to abandon their jobs, homes, or general day-to-day life to do something exciting like this. I don’t think McCandless had very many fears, if any, entering into this lifestyle, as that is what holds a lot of us back from doing similar things. 
 
-_What if it doesn’t work out? What if I have to return to my job? What if they won’t take me back? What if I become homeless? What if I get lonely? What if I starve to death?_ Chris McCandless may not have even let those thoughts cross his mind as they would have held him back from doing what he wanted to do.
+_What if it doesn’t work out? What if I have to return to my job? What if they won’t take me back? What if I become homeless? What if I get lonely? What if I starve to death?_ 
+
+Chris McCandless may not have even let those thoughts cross his mind as they would have held him back from doing what he wanted to do.
 
 It is even said that he loved classic literature, such as Walden by Henry David Thoreau. A lover of classic literature myself, It’s pretty hard not to romanticize McCandless’ story, at least a little bit.
 
