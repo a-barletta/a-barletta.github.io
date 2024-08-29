@@ -1,4 +1,4 @@
-## Quoting Stan Pines (Summer of _Gravity Falls_)
+## Quoting Grunkle Stan (Summer of _Gravity Falls_)
 
 <p align="center">
       <img src="https://i.pinimg.com/736x/b8/79/cd/b879cd5fb64d8136adea8e31103fdcf7--group-photos-pine.jpg"
