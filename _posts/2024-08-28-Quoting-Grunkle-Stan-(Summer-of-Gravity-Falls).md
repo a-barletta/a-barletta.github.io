@@ -14,6 +14,7 @@ No, I do not actually believe any of this. Astrology has become so generalized t
 I don’t think your zodiac sign can predict much of anything about one’s personality, and Mercury being in retrograde is literally just an optical illusion, just watch [this episode of Star Talk](https://youtu.be/VXQh1xFce7s?si=QADqJKHHPKM_Mty3).
 
 So, in case there was any confusion, this is for fun. Don’t take it too seriously. I just wanted to compile my favorite Gravity Falls quotes into one place and here it is. It’s healing to laugh at all of the funny lines these characters say–just let yourself laugh.
+<br/>
 
 The Signs as Dipper Pines Quotes
 
@@ -40,7 +41,7 @@ Capricorn: I’m Dipper; I have shorts and determination!
 Aquarius: There’s a carpetbagger I’m the turnip cellar.
 
 Pisces: She’s cheating at life!
-
+<br/>
 
 The Signs as Mabel Pines Quotes
 
@@ -67,7 +68,7 @@ Capricorn: It’s covered in my blood, sweat, tears, and other fluids.
 Aquarius: Syrup on cereal!
 
 Pisces: I’m upset, yet intrigued.
-
+<br/>
 
 The Signs as Stanley Pines Quotes
 
@@ -94,7 +95,7 @@ Capricorn: You had me at shut up old man.
 Aquarius: Time to use my old man powers.
 
 Pisces: Text me a photo? Now you’re not even speaking English!
-
+<br/>
 
 The Signs as Soos Ramirez Quotes: 
 
@@ -121,7 +122,7 @@ Capricorn: Some things, even Soos can’t fix.
 Aquarius: What a nice lady. Well, back to riding this tiny train for children!
 
 Pisces: Bros before dinos!
-
+<br/>
 
 The Signs as Wendy Corduroy Quotes
 
@@ -148,5 +149,6 @@ Capricorn: It’s time we stop trying to be so “perfect” and be who we reall
 Aquarius: This is literally too dumb for me to care about.
 
 Pisces: TV lied, man! If you can avoid growing up, do it.
+<br/>
 
 I hope you enjoyed reading through these. Have a nice day!
