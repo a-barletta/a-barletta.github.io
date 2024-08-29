@@ -15,7 +15,7 @@ I don’t think your zodiac sign can predict much of anything about one’s pers
 
 So, in case there was any confusion, this is for fun. Don’t take it too seriously. I just wanted to compile my favorite Gravity Falls quotes into one place and here it is. It’s healing to laugh at all of the funny lines these characters say–just let yourself laugh.
 <br/>
-
+<br/>
 The Signs as Dipper Pines Quotes
 
 Aries: I am too Manly... Manny, or whatever it was you said!
@@ -42,7 +42,7 @@ Aquarius: There’s a carpetbagger I’m the turnip cellar.
 
 Pisces: She’s cheating at life!
 <br/>
-
+<br/>
 The Signs as Mabel Pines Quotes
 
 Aries:   The only monsters are your own inner demons, Dipper!
@@ -69,7 +69,7 @@ Aquarius: Syrup on cereal!
 
 Pisces: I’m upset, yet intrigued.
 <br/>
-
+<br/>
 The Signs as Stanley Pines Quotes
 
 Aries: What’s everyone crying about? Back in my day, zeppelins fell from the sky like raindrops!
@@ -96,7 +96,7 @@ Aquarius: Time to use my old man powers.
 
 Pisces: Text me a photo? Now you’re not even speaking English!
 <br/>
-
+<br/>
 The Signs as Soos Ramirez Quotes: 
 
 Aries: That wasn’t like, a regular pedestrian, was it?
@@ -123,7 +123,7 @@ Aquarius: What a nice lady. Well, back to riding this tiny train for children!
 
 Pisces: Bros before dinos!
 <br/>
-
+<br/>
 The Signs as Wendy Corduroy Quotes
 
 Aries: Because after I break Ghost Eyes’s arm and steal the key off your neck, I’m gonna wear your butt on my foot like a rhinestone slipper!
@@ -150,5 +150,5 @@ Aquarius: This is literally too dumb for me to care about.
 
 Pisces: TV lied, man! If you can avoid growing up, do it.
 <br/>
-
+<br/>
 I hope you enjoyed reading through these. Have a nice day!
