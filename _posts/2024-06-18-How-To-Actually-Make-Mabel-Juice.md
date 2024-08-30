@@ -22,7 +22,11 @@ The next drink special is Mabel Juice. It combines the sugary sweetness of vanil
 
 The simple syrup recipe is the same 1:1 ratio of sugar and simple syrup with added vanilla extract for the vanilla, and strawberries for the strawberry syrup. The strawberries take a while to cook down, but it is so worth it to have fresh strawberry syrup on hand for this refreshing drink! You can find ube matcha powder easily on the internet, and it’s a great energizer. Just add all the ingredients together with water and mix them up–so simple.
 
-Image of Mabel Juice coming soon!
+<p align="center">
+      <img src=""
+  		 width="100%"/>
+<p align="left">I didn't have a plastic dinosaur, but I did add an optional edible flower that tastes like a spicy bell pepper.</p>
+</p>
 
 The next special is Stan’s Toffee Nut Cold Brew. Salted caramel drizzle and caramel cold foam are delicious together, and come together so easily! Cold brew is time consuming, as it takes no less than 12 hours to make, so it’s best to let it sit overnight. Make sure you use course ground coffee!
 
