@@ -23,7 +23,7 @@ The next drink special is Mabel Juice. It combines the sugary sweetness of vanil
 The simple syrup recipe is the same 1:1 ratio of sugar and simple syrup with added vanilla extract for the vanilla, and strawberries for the strawberry syrup. The strawberries take a while to cook down, but it is so worth it to have fresh strawberry syrup on hand for this refreshing drink! You can find ube matcha powder easily on the internet, and it’s a great energizer. Just add all the ingredients together with water and mix them up–so simple.
 
 <p align="center">
-      <img src=""
+      <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Mabel%20Juice%20%5Bgood%20version%5D.jpg?raw=true"
   		 width="100%"/>
 <p align="left">I didn't have a plastic dinosaur, but I did add an optional edible flower that tastes like a spicy bell pepper.</p>
 </p>
