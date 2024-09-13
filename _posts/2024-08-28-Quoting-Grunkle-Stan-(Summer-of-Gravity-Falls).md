@@ -11,7 +11,7 @@ Hi everyone! I'm doing another fun little post today because I found a really ol
 I did this a long time ago, back when I still really liked looking at different zodiac sign posts on Pinterest and such.
 No, I do not actually believe any of this. Astrology has become so generalized that it’s easy to identify with whatever your horoscope says about you. 
 
-I don’t think your zodiac sign can predict much of anything about one’s personality, and Mercury being in retrograde is literally just an optical illusion, just watch [this episode of Star Talk](https://youtu.be/VXQh1xFce7s?si=QADqJKHHPKM_Mty3).
+I don’t think your zodiac sign can predict much of anything about one’s personality, and Mercury being in retrograde is literally an optical illusion, just watch [this episode of Star Talk](https://youtu.be/VXQh1xFce7s?si=QADqJKHHPKM_Mty3).
 
 So, in case there was any confusion, this is for fun. Don’t take it too seriously. I just wanted to compile my favorite Gravity Falls quotes into one place and here it is. It’s healing to laugh at all of the funny lines these characters say–just let yourself laugh.
 <br/>
