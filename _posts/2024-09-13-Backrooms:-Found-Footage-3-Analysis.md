@@ -2,7 +2,7 @@
 
 Backrooms - Found Footage 3 Analysis
 
-Hello readers, welcome to another post. Today’s post is about the Backrooms, which I have spent a lot of time studying (see My Academic Work).
+Hello readers, welcome to another post. Today’s post is about the Backrooms, which I have spent a lot of time studying (see [My Academic Work](https://a-barletta.github.io/My-Academic-Work.html)).
 
 Today, Kane Pixels posted his third found footage video for his Backrooms series, and I wanted to talk a little bit about it.
 
