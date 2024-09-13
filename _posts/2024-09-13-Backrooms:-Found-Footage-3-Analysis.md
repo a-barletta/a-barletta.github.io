@@ -34,7 +34,7 @@ Once the man fell in, the weak spot was gone. Ravi may have even had a chance to
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Before%20man%20disappears.png?raw=true"
   		 width="100%"/>
 <p align="center">
-      <img src=""
+      <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/After%20man%20disappears.png?raw=true"
   		 width="100%"/>
 <p align="left">Screenshots of the wall before and after the man falls into the Backrooms. You can see the picture of a man and child on the floor, representing how the man fell.</p>
 </p>
