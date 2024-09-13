@@ -45,7 +45,7 @@ I can’t tell what the people are saying, but where are their voices coming fro
 It is also at this point in the video when Ravi hears a noise behind him and sees something that begins chasing him. It looks like someone who fell into the Backrooms and is starting to be overtaken by the black bacteria. 
 
 <p align="center">
-      <img src=""
+      <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Figure%20chasing%20Ravi.png?raw=true"
   		 width="100%"/>
 <p align="left">Screenshot of the figure chasing Ravi.</p>
 </p>
