@@ -55,8 +55,11 @@ It is also at this point in the video when Ravi hears a noise behind him and see
 
 This thing still has a human-like form, but it is not human anymore. It does not say anything; just makes incomprehensible noises, and it goes straight to chasing Ravi as soon as it sees him. You can tell it’s trying to say something, maybe “Help!” but they’re too far gone to tell.
 <br/>
+<br/>
 All in all, Found Footage 3 is beautiful, unnerving, nostalgic, terrifying, and heartbreaking. It is everything I hope for in a liminal spaces video. Go watch it and support Kane Pixels and creators like him!
 <br/>
+<br/>
 [The Backrooms playlist](https://www.youtube.com/playlist?list=PLVAh-MgDVqvDUEq6qDXqORBioE4Yhol_z)
+<br/>
 <br/>
 [The Oldest View playlist](https://www.youtube.com/playlist?list=PLVAh-MgDVqvAwoFF5hJmtRrx86Yw-pdN1)
