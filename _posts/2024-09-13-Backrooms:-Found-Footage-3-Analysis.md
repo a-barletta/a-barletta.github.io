@@ -16,7 +16,7 @@ I absolutely love the addition of music in this video. While the silence in prev
 
 Kane really experimented with different rooms this time around. Good on him for expanding beyond the mono yellow walls! Plus, I think the music also furthers the immersion in the Backrooms, aiding in making this environment into something the characters have no control over.
 
-The music also adds to the familiar and nostalgic aspect of the different rooms. The school bells, that played right after the protagonist, Ravi, fell into the Backrooms, sent me right into the immersion.
+The music also adds to the familiar and nostalgic aspect of the different rooms. The school bells (at least, I think they are school bells) that played right after the protagonist, Ravi, fell into the Backrooms, sent me right into the immersion.
 
 Another aspect of the music I liked is that much like the Backrooms themselves, the music felt a little off. It was exactly the kind of music you would hear while watching a liminal spaces compilation video because it fills you with nostalgia, and you can’t even put your finger on why.
 
