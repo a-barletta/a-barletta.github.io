@@ -38,8 +38,7 @@ Once the man fell in, the weak spot was gone. Ravi may have even had a chance to
   		 width="100%"/>
 <p align="left">Screenshots of the wall before and after the man falls into the Backrooms. You can see the picture of a man and child on the floor, representing how the man fell.</p>
 </p>
-<br/>
-<br/>
+
 The Backrooms are not a place where hope lasts long. Eventually, it runs out, and the people trapped inside grow tired. They feel as if they would do anything to escape from the empty rooms, but eventually, are overtaken by the bacteria the Backrooms are infested with.
 <br/>
 <br/>
