@@ -39,13 +39,18 @@ Once the man fell in, the weak spot was gone. Ravi may have even had a chance to
 <p align="left">Screenshots of the wall before and after the man falls into the Backrooms. You can see the picture of a man and child on the floor, representing how the man fell.</p>
 </p>
 <br/>
+<br/>
 The Backrooms are not a place where hope lasts long. Eventually, it runs out, and the people trapped inside grow tired. They feel as if they would do anything to escape from the empty rooms, but eventually, are overtaken by the bacteria the Backrooms are infested with.
+<br/>
 <br/>
 This man who tried to help Ravi doesn’t even seem like his first encounter with a weak spot, either. Obviously he encountered a weak spot when he no-clipped in, but what about 27 minutes in when he opens a door and hears a conversation between two people?
 <br/>
+<br/>
 I can’t tell what the people are saying, but where are their voices coming from? Is it more Backrooms weirdness or a weak point in the real world?
 <br/>
+<br/>
 It is also at this point in the video when Ravi hears a noise behind him and sees something that begins chasing him. It looks like someone who fell into the Backrooms and is starting to be overtaken by the black bacteria. 
+<br/>
 <br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Figure%20chasing%20Ravi.png?raw=true"
