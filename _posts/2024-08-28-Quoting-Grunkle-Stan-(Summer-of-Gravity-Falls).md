@@ -9,11 +9,11 @@
 Hi everyone! I'm doing another fun little post today because I found a really old document in my files where I wrote down my favorite quotes from _Gravity Falls_ characters and assigned a zodiac sign to each quote.
 
 I did this a long time ago, back when I still really liked looking at different zodiac sign posts on Pinterest and such.
-No, I do not actually believe any of this. Astrology has become so generalized that it’s easy to identify with whatever your horoscope says about you. 
+Before you roll your eyes and leave this post, no, I do not actually believe in the generalized Astrology that's vagueness makes it easy to identify with.
 
-I don’t think your zodiac sign can predict much of anything about one’s personality, and Mercury being in retrograde is literally an optical illusion, just watch [this episode of Star Talk](https://youtu.be/VXQh1xFce7s?si=QADqJKHHPKM_Mty3).
+In fact, I don’t think a zodiac sign can predict much of anything about one’s personality, and Mercury being in retrograde is literally an optical illusion, just watch [this episode of Star Talk](https://youtu.be/VXQh1xFce7s?si=QADqJKHHPKM_Mty3).
 
-So, in case there was any confusion, this is for fun. Don’t take it too seriously. I just wanted to compile my favorite Gravity Falls quotes into one place and here it is. It’s healing to laugh at all of the funny lines these characters say–just let yourself laugh.
+So, in case there was any confusion, this is for fun. Don’t take it too seriously. I just wanted to compile my favorite Gravity Falls quotes into one place and this is the fun spin I put on it. It’s healing to laugh at all of the funny lines these characters say–just let yourself laugh.
 <br/>
 <br/>
 <br/>
