@@ -23,7 +23,8 @@ Increase 1 every ten stitches for one row (adding 12 sts totaling 134 sts)
 Continue stockinette stitch until work measures 12 total inches (2 inches rib stitch, 10 inches stockinette stitch)
 <br/>
 <br/>
-Front of sweater
+<br/>
+Front of sweater:
 
 Place back stitches (66 total) on placeholder for the time being. You will pick them up later.
 
@@ -35,7 +36,8 @@ Slip first stitch and purl to the end of the row.
 Repeat steps 4c and 4d for 15 more rows (totaling 8 rows knit, 8 rows purl). Do the same for the 33 stitches on the other side. This is to shape the neck.
 <br/>
 <br/>
-Back of sweater
+<br/>
+Back of sweater:
 
 Place front stitches on a placeholder
 
@@ -44,7 +46,8 @@ Do the same stockinette stitch until back of sweater measures 19 inches (includi
 Do steps 4c and 4d to shape the neck of the back of the sweater
 <br/>
 <br/>
-Neck of sweater
+<br/>
+Neck of sweater:
 
 Join the 15 stitches on either end of the neck with the kitchener stitch. Do the same for the other side of the sweater.
 
@@ -55,7 +58,8 @@ Increase/decrease any stitches while knitting in stockinette to fit your neck. I
 Begin rib stitch (k1 p1) for as many rows as you like. I am making mine a turtleneck, so I did this for about 5 inches.
 <br/>
 <br/>
-Arms of sweater
+<br/>
+Arms of sweater:
 
 Pick up stitches around around arms holes. I ended up with 56.
 
@@ -74,7 +78,8 @@ Stretchy cast off.
 Repeat for other arm.
 <br/>
 <br/>
-Shooting star
+<br/>
+Shooting star:
 
 I used a combo of [this pattern](https://www.youtube.com/watch?v=pJ1FwA8l9Ng) and [this pattern](https://www.youtube.com/watch?v=GN8h7oHEFJs&t=30s) to make the star, and for the rainbow, I simply knit 4 rows of each color, not including cast on and cast off, 25 stitches per row. I then stitched the rainbow on the sweater, making sure it was centered, and the star slightly overlapping it. 
 
