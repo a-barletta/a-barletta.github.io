@@ -88,7 +88,7 @@ The arms actually ended up being a little shorter than I would have liked, but I
 I also didn’t take pictures during the process of making this, only of the final product here:
 
 <p align="center">
-  	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/IMG_8025.jpg?raw=true"/>
+  	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/IMG_8022.jpg?raw=true"/>
 <p align="left">The finished sweater.</p>
 </p>
 
