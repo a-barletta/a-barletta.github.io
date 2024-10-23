@@ -95,8 +95,7 @@ I also didn’t take pictures during the process of making this, only of the fin
 And now I have Mabel’s sweater. I plan to use this sweater as my Halloween costume, so I bought a [purple skirt from Halara](https://thehalara.com/products/everyday-2-in-1-tennis-skirt-lucid?pmui=10.1.collection.list.3.skirts&pmuih=skirts&_sasdk=dbm9kZS0xNzI4MDc3NDgxOTY3LXdhbWxra3U0MjU5LTJkY3N4cGx5Nzl4&variant=44017649647782) and plan to get a pair of mid-calf white socks. I have a pair of [black shoes from Eastland](https://eastlandshoe.com/collections/womens-loafers-slip-on-shoes/products/womens-sherri-buckle-slip-on) that are quite comfortable but not necessary to recreate this costume. Last but not least, I have a pink headband!
 
 <p align="center">
-  	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/IMG_8024.jpg?raw=true"
-       	width="100%"/>
+  	<img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/IMG_8025.jpg?raw=true"/>
 <p align="left">All of the costume pieces, including a Waddles stuffed animal.</p>
 </p>
 
