@@ -32,7 +32,10 @@ The next special is Stan’s Toffee Nut Cold Brew. Salted caramel drizzle and ca
 
 We use [this](https://www.monin.com/us/sea-salt-caramel-toffee-sauce) salted caramel toffee sauce from Monin to drizzle on the sides of the cup before pouring the cold brew in. Then, we top it off with caramel cold foam, which you can make using roughly ⅛ cup of heavy cream with flavored syrup to you sweetness preferences–we typically do 3 pumps of caramel syrup in the shop. I recommend [this](https://shop.torani.com/products/caramel-syrup) caramel syrup from Torani for the cold foam. Then, just froth it up with a handheld milk frother until it forms peaks. Boom! Homemade cold foam!
 
-Image of Stan's Toffee Nut Cold Brew coming soon!
+<p align="center">
+      <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Stan%20Cold%20Brew.jpg?raw=true"/>
+<p align="left">One of the most popular specialty drinks we had this summer.</p>
+</p>
 
 The next drink special is Soos’ Mystery Frap. This is a barista’s choice, where we add any flavor we have in the shop, of course, making sure the customer doesn’t have any food allergies first. I can’t say much about the flavors, but a frappe is made with 4 ounces of heavy cream, 2 ounces of espresso, four pumps of flavor syrup, and ice. Don’t forget the ice because this will turn into whip cream if you do!
 
