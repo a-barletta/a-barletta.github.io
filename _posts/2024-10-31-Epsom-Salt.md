@@ -8,7 +8,7 @@
 
 Hey, folks. Recently I was on TikTok, and I need to stop that because the algorithm does not control me. Anyway, I came across a [video](https://www.tiktok.com/t/ZTFtb2d5v/) talking about how the ingredients in acne patches are just epsom salts.
 
-I watched the original video referenced, made by [NinaPool](https://www.tiktok.com/t/ZTFtqwM8M/) which did not actually make the claim that acne patches are made of epsom salt, but that epsom salt is useful in drawing pus out of pimples. The person in this video demonstrates and it seems to work for them.
+I watched the original video referenced, made by [Nina Pool](https://www.tiktok.com/t/ZTFtqwM8M/) which did not actually make the claim that acne patches are made of epsom salt, but that epsom salt is useful in drawing pus out of pimples. The person in this video demonstrates and it seems to work for them.
 
 I then found another video by [BrickShrimp](https://www.tiktok.com/t/ZTFtbh2EC/) referencing NinaPool, claiming that sulfates are toxic and that we should not be putting them on our skin.
 
