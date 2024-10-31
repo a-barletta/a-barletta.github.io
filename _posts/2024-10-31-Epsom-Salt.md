@@ -69,18 +69,17 @@ Happy Halloween.
 
 Sources
 
-<a href="https://archive.epa.gov/water/archive/web/html/sulfate.html"></a>
+<a href="https://archive.epa.gov/water/archive/web/html/sulfate.html">Sulfates in Water</a>
 <br/>
-<a href="https://ww2.arb.ca.gov/resources/sulfate-and-health"></a>
+<a href="https://ww2.arb.ca.gov/resources/sulfate-and-health">Sulfates in Air</a>
 <br/>
-<a href="https://bio.libretexts.org/Bookshelves/Microbiology/"></a>
+<a href="https://bio.libretexts.org/Bookshelves/Microbiology Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle">The Sulfur Cycle</a>
 <br/>
-<a href="https://bio.libretexts.org/Bookshelves/Microbiology Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle"></a>
+<a href="https://www.epa.gov/air-trends/particulate-matter-pm25-trends">Air Particulate Trends</a>
 <br/>
-<a href="https://health.clevelandclinic.org/7-things-you-probably-didnt-know-about-epsom-salt"></a>
+<a href="https://health.clevelandclinic.org/7-things-you-probably-didnt-know-about-epsom-salt">Benefits and Side Effects of Epsom Salt</a>
 <br/>
-<a href="https://health.clevelandclinic.org/red-dye-40"></a>
+<a href="https://health.clevelandclinic.org/red-dye-40">Red 40</a>
 <br/>
-<a href="https://www.epa.gov/air-trends/particulate-matter-pm25-trends"></a>
-
+<br/>
 Actual citations coming soon! These are just the links for now.
