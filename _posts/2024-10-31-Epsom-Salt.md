@@ -70,8 +70,15 @@ Happy Halloween.
 Sources
 
 https://archive.epa.gov/water/archive/web/html/sulfate.html
+<br/>
 https://ww2.arb.ca.gov/resources/sulfate-and-health
-https://bio.libretexts.org/Bookshelves/Microbiology/Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle
+<br/>
+https://bio.libretexts.org/Bookshelves/Microbiology/
+<br/>
+Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle
+<br/>
 https://health.clevelandclinic.org/7-things-you-probably-didnt-know-about-epsom-salt
+<br/>
 https://health.clevelandclinic.org/red-dye-40
+<br/>
 https://www.epa.gov/air-trends/particulate-matter-pm25-trends
