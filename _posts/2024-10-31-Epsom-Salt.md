@@ -1,5 +1,11 @@
 ## Epsom Salt
 
+<p align="center">
+      <img src="https://images.unsplash.com/photo-1621315892013-f32af7358947?q=80&w=2940&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D"
+  		 width="100%"/>
+<p align="left">Salt field (Unsplash).</p>
+</p>
+
 Hey, folks. Recently I was on TikTok, and I need to stop that because the algorithm does not control me. Anyway, I came across a [video](https://www.tiktok.com/t/ZTFtb2d5v/) talking about how the ingredients in acne patches are just epsom salts.
 
 I watched the original video referenced, made by [NinaPool](https://www.tiktok.com/t/ZTFtqwM8M/) which did not actually make the claim that acne patches are made of epsom salt, but that epsom salt is useful in drawing pus out of pimples. The person in this video demonstrates and it seems to work for them.
@@ -56,7 +62,13 @@ The truth is, we’ll all be gone someday. Nobody will remember what a healthy l
 
 Happy Halloween.
 
+<p align="center">
+      <img src="https://images.unsplash.com/photo-1509557965875-b88c97052f0e?w=900&auto=format&fit=crop&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8NXx8aGFsbG93ZWVufGVufDB8fDB8fHwy"
+  		 width="100%"/>
+</p>
+
 Sources
+
 https://archive.epa.gov/water/archive/web/html/sulfate.html
 https://ww2.arb.ca.gov/resources/sulfate-and-health
 https://bio.libretexts.org/Bookshelves/Microbiology/Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle
