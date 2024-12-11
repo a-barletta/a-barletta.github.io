@@ -43,7 +43,7 @@ Now that I had all of the components, I was finally able to make my latte–this
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/My%20first%20latte.jpg?raw=true"
   		 width="100%"/>
-<p align="left">This was the first latte I made with at home. The latte art isn't too bad!</p>
+<p align="left">This was the first latte I made at home. The latte art isn't too bad!</p>
 </p>
 
 The most fun part of making lattes at home is getting to post photos on social media to show all of your friends how cool you are.
