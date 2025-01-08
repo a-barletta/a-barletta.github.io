@@ -7,7 +7,7 @@ In the scene at the beginning of the film when we see the drawings posted on the
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/FNAF%20Movie%20Screenshot.png?raw=true"
   		 width="100%"/>
-<p align="left">Screenshot from the _Five Nights at Freddy's_ movie of the drawings on the pizzeria wall.</p>
+<p align="left">Screenshot from the Five Nights at Freddy's movie of the drawings on the pizzeria wall.</p>
 </p>
 
 When I saw this, a lightbulb went off in my head. This looks to be the only drawing in the movie where a child is named, which probably means something significant.
