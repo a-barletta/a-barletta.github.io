@@ -5,7 +5,7 @@ Hello everyone! I was watching the Five Nights at Freddy’s movie today, and I 
 In the scene at the beginning of the film when we see the drawings posted on the wall of Freddy Fazbear’s Pizza, there is a drawing of a kid named David holding tickets and a lady who I’m assuming is his mother holding a balloon.
 
 <p align="center">
-      <img src="Image link here"
+      <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/FNAF%20Movie%20Screenshot.png?raw=true"
   		 width="100%"/>
 <p align="left">Screenshot from the _Five Nights at Freddy's_ movie of the drawings on the pizzeria wall.</p>
 </p>
