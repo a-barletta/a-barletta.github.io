@@ -69,17 +69,19 @@ Happy Halloween.
 
 Sources
 
-<a href="https://archive.epa.gov/water/archive/web/html/sulfate.html">Sulfates in Water</a>
-<br/>
-<a href="https://ww2.arb.ca.gov/resources/sulfate-and-health">Sulfates in Air</a>
-<br/>
-<a href="https://bio.libretexts.org/Bookshelves/Microbiology Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle">The Sulfur Cycle</a>
-<br/>
-<a href="https://www.epa.gov/air-trends/particulate-matter-pm25-trends">Air Particulate Trends</a>
-<br/>
-<a href="https://health.clevelandclinic.org/7-things-you-probably-didnt-know-about-epsom-salt">Benefits and Side Effects of Epsom Salt</a>
-<br/>
-<a href="https://health.clevelandclinic.org/red-dye-40">Red 40</a>
+[“16.4f: The Sulfur Cycle.” Biology LibreTexts, Libretexts, 23 Nov. 2024](bio.libretexts.org/Bookshelves/Microbiology/Microbiology_(Boundless)/16%3A_Microbial_Ecology/16.04%3A_Nutrient_Cycles/16.4F%3A_The_Sulfur_Cycle). Accessed 31 Oct 2024.
 <br/>
 <br/>
-Actual citations coming soon! These are just the links for now.
+[“California Air Resources Board.” Sulfate & Health | California Air Resources Board](ww2.arb.ca.gov/resources/sulfate-and-health). Accessed 31 Oct 2024.
+<br/>
+<br/>
+[“Is Red Dye 40 Safe?” Cleveland Clinic, Cleveland Clinic, 25 Aug. 2024](health.clevelandclinic.org/red-dye-40). Accessed 24 Oct 2024.
+<br/>
+<br/>
+[“Particulate Matter (PM2.5) Trends.” EPA, Environmental Protection Agency](www.epa.gov/air-trends/particulate-matter-pm25-trends). Accessed 31 Oct 2024.
+<br/>
+<br/>
+[“Should You Take an Epsom Salt Bath?” Cleveland Clinic, Cleveland Clinic, 2 July 2024](health.clevelandclinic.org/7-things-you-probably-didnt-know-about-epsom-salt). Accessed 31 Oct 2024.
+<br/>
+<br/>
+[“Sulfate in Drinking Water.” EPA, Environmental Protection Agency, 6 Mar. 2012](archive.epa.gov/water/archive/web/html/sulfate.html). Accessed 31 Oct 2024.
