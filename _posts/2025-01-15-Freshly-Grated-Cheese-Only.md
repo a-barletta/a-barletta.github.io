@@ -27,7 +27,8 @@ Sulfates aren’t the best for you, either. As I mentioned in my [Epsom Salt](ht
   		 width="100%"/>
 <p align="left">Here is an image of the ingredients in Great Value brand grated cheese from my refridgerator. As you can see, it doesn’t contain any sulfates, but always check if you’re worried about it, because it may vary for different types and brands of cheese.</p>
 </p>
-</br>
+
+<br/>
 So, I understand why people might not want to use pre-grated cheese, especially if they are feeding it to their children. However, the levels of sulfates found in everyday food and other products are low. 
 
 I say use the pre-grated cheese from the store if you want to. I’ve eaten pre-grated cheese all my life, and I’m still healthy. But, don’t just take my word for it–if you’re still worried about the ingredients in your food, research it for yourself.
