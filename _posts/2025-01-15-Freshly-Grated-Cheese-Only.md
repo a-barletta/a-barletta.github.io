@@ -40,12 +40,9 @@ Have a great day!
 Sources:
 
 [Brooks, Amelia. “How to Store Freshly Grated Cheese.” Storables, 19 Oct. 2024](storables.com/articles/how-to-store-freshly-grated-cheese/).
-</br>
-</br>
+<br/>
 [“Calcium Sulfate.” Wikipedia, Wikimedia Foundation, 7 Jan. 2025](en.wikipedia.org/wiki/Calcium_sulfate).
-</br>
-</br>
+<br/>
 [Hickman, Kiersten. “The Hidden Ingredient in Shredded Cheese That’s Destroying Your Recipes.” Eat This Not That, 24 June 2020](www.eatthis.com/hidden-ingredient-shredded-cheese/).
-</br>
-</br>
+<br/>
 [Tarlton, Amanda. “3 Surprising Reasons Why You Should Always Grate Your Own Cheese.” Taste of Home, Taste of Home, 13 Dec. 2022](www.tasteofhome.com/article/why-grate-your-own-cheese/).
