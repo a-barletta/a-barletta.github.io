@@ -8,7 +8,7 @@ As someone who doesn’t own a cheese grater, I didn’t want to think that usin
 
 I already knew that the pre-grated cheese I buy at the store is coated in starch to keep the cheese from conglomerating and to preserve it for longer. And what do these content creators add to their cheese sauces? Flour. A starch. To make a [roux](https://www.youtube.com/watch?v=eTf0n1HoC1w).
 
-Making a roux is supposed to add flavor to your recipes, but the first time I make mac and cheese for my boyfriend, I must have made it wrong because it was the most flavorless mac and cheese I’ve ever had.
+Making a roux is supposed to add flavor to your recipes, but the first time I made mac and cheese for my boyfriend, I must have made it wrong because it was the most flavorless mac and cheese I’ve ever had.
 
 Nowadays, I stick to making the cheese sauce with butter, milk, and 2-3 pre-grated cheeses. The starches that coat the cheese help thicken the sauce, and it still tastes amazing.
 
@@ -25,7 +25,7 @@ Sulfates aren’t the best for you, either. As I mentioned in my [Epsom Salt](ht
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Cheese%20Ingredients.jpg?raw=true"
   		 width="100%"/>
-<p align="left">Here is an image of the ingredients in Great Value brand grated cheese from my refridgerator. As you can see, it doesn’t contain any sulfates, but always check if you’re worried about it, because it may vary for different types and brands of cheese.</p>
+<p align="left">Here is an image of the ingredients in Great Value brand grated cheese from my refrigerator. As you can see, it doesn’t contain any sulfates, but always check if you’re worried about it, because it may vary for different types and brands of cheese.</p>
 </p>
 
 <br/>
