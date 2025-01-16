@@ -6,7 +6,7 @@ Well, dear reader, I finally discovered why it bothers me: I wasn’t getting th
 
 As someone who doesn’t own a cheese grater, I didn’t want to think that using freshly grated cheese in my recipes would make that big of a difference, taste-wise or quality-wise.
 
-I already knew that the pre-grated cheese I buy at the store is coated in starch to keep the cheese from conglomerating at to preserve it for longer. And what do these content creators add to their cheese sauces? Flour. A starch. To make a [roux](https://www.youtube.com/watch?v=eTf0n1HoC1w).
+I already knew that the pre-grated cheese I buy at the store is coated in starch to keep the cheese from conglomerating and to preserve it for longer. And what do these content creators add to their cheese sauces? Flour. A starch. To make a [roux](https://www.youtube.com/watch?v=eTf0n1HoC1w).
 
 Making a roux is supposed to add flavor to your recipes, but the first time I make mac and cheese for my boyfriend, I must have made it wrong because it was the most flavorless mac and cheese I’ve ever had.
 
