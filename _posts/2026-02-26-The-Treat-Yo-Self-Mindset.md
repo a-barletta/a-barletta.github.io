@@ -37,9 +37,13 @@ I haven’t even scratched the surface of recreational drugs and how much they a
 Until then, please take care of yourselves, dear readers. Love and respect yourselves enough to know when to buy yourself a little treat and when you don’t need it.
 
 So, this turned out to be more of an opinion piece, but I did find some scholarly, peer-reviewed sources that I did read while writing this, so here you go:
+
 Ramanathan, Suresh, & WIlliams, Patti. (2007, January 1). _Immediate and Delayed Emotional Consequences of Indulgence: The Moderating Influence of Personality Type on Mixed Emotions._ https://www.academia.edu/10817483/Immediate_and_Delayed_Emotional_Consequences_of_Indulgence_The_Moderating_Influence_of_Personality_Type_on_Mixed_Emotions 
+
 Mukhopadhyay, A., & Johar, G. V. (2009). _Self-rewards for prior shopping restraint._ business.columbia.edu. https://business.columbia.edu/sites/default/files-efs/pubfiles/4145/JCP%2008-0004%20Self-Reward%20final.pdf 
 
 I also read a few other articles similar to mine, but well-researched and articulated much better than this:
+
 Weinberg, Lindsey. “When treating yourself is actually bad for you health.” _HerCampus._ 25 July 2018. https://www.hercampus.com/wellness/when-treating-yourself-actually-bad-your-health/
+
 Schulman, Jill. “Real Self-Care Is Discipline, Not Comfort.” _Psychology Today_. 24 September 2025. https://www.psychologytoday.com/us/blog/the-science-of-bravery/202509/real-self-care-is-discipline-not-comfort
