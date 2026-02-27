@@ -12,7 +12,7 @@ Specifically, this post is dedicated to the color pink and how since I grew up, 
 
 The color’s very presence in the _Barbie_ movie almost deterred one of my coworkers from going to see the movie. She didn’t like the stereotype that all little girls have to like pink or wear pink, and I explained to her that’s not really what the _Barbie_ movie is about. Barbie herself wears different colors in her outfits each day, and in the opening song, titled “[Pink](https://www.youtube.com/watch?v=8uIxoCs7iv8)” of course, Lizzo sings, “We like other colors, but pink just looks so good on us.”
 
-The _Barbie_ movie actually tries to break the stereotype of associating pink with femininity because the men in the Barbie movie wear pink too. It’s not because “realy men wear pink,” but because Barbieland is a place where gender stereotypes aren’t really present (aside from, of course, that women go out to work and men stay at home).
+The _Barbie_ movie actually tries to break the stereotype of associating pink with femininity because the men in the Barbie movie wear pink too. It’s not because “real men wear pink,” but because Barbieland is a place where gender stereotypes aren’t really present (aside from, of course, that women go out to work and men stay at home).
 
 Speaking of which, I’ve heard a lot of complaints that the _Barbie_ movie puts women on a “pedestal.” Yeah. That’s the point. The movie imagines a world where gender roles were flipped to show that society can’t function when there are gender binaries making one gender oppressed or reliant on the other. 
 
