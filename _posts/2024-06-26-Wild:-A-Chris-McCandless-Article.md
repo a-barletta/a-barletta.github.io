@@ -22,9 +22,9 @@ _What if it doesn’t work out? What if I have to return to my job? What if they
 
 Chris McCandless may not have even let those thoughts cross his mind as they would have held him back from doing what he wanted to do.
 
-It is even said that he loved classic literature, such as Walden by Henry David Thoreau. A lover of classic literature myself, It’s pretty hard not to romanticize McCandless’ story, at least a little bit.
+It is even said that he loved classic literature, such as _Walden_ by Henry David Thoreau. A lover of classic literature myself, It’s pretty hard not to romanticize McCandless’ story, at least a little bit.
 
-Plus, the Romantic Period of Literature in which Walden was published places a great emphasis on spiritual/emotional connection to one’s natural surroundings. Philosopher Isaiah Berlin says Romanticism is “a nervous preoccupation with perpetually changing inner states of consciousness, a longing for the unbounded and the indefinable, for perpetual movement and change, an effort to return to the forgotten sources of life.”
+Plus, the Romantic Period of Literature in which _Walden_ was published places a great emphasis on spiritual/emotional connection to one’s natural surroundings. Philosopher Isaiah Berlin says Romanticism is “a nervous preoccupation with perpetually changing inner states of consciousness, a longing for the unbounded and the indefinable, for perpetual movement and change, an effort to return to the forgotten sources of life.”
 
 Chris McCandless embodies these values throughout his story. Even from a young age, McCandless’ colleagues noticed that he thought differently than most. He longed for change, not just from his home life, but from life itself. He wanted the individualism that Romantic authors portrayed in their works.
 
