@@ -6,7 +6,6 @@
 <p align="left">The birds have sought revenge. But why?</p>
 </p>
 <br/>
-<br/>
 If you’ve seen Alfred Hitchcock’s _The Birds_, then you know it’s a movie about birds suddenly attacking humans out of nowhere and for seemingly no reason. It’s an apocalypse that doesn’t know why it’s an apocalypse, but today, I found the answer.
 <br/>
 <br/>
