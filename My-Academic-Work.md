@@ -5,7 +5,7 @@ title: My Academic Work
 
 Welcome to my academic work page! Below you will find links to different essays I have written over the years. Each is in a Google Docs format. Thanks for reading!
 
-["Light Into Dark Lady Sonnets"](https://docs.google.com/document/d/1F_iDVwCYaXlXhSUyAeOVgzhTg6AdHDWu/edit?usp=sharing&ouid=102324141682450233373&rtpof=true&sd=true)
+["Light Into Dark Lady Sonnets"](https://docs.google.com/document/d/1zHiQLJt0knN-LM1z6ZvcOpKJcZrPzy90/edit?usp=sharing&ouid=102324141682450233373&rtpof=true&sd=true)
 
 ["Reclaiming Victimhood: Mrs. Dalloway's Hidden Strength"](https://docs.google.com/document/d/1NTrMlSZs5C5H72okIDpewwB782-B4f7s2zKTiWuwDUE/edit?usp=sharing)
 
