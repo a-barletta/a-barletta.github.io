@@ -15,3 +15,5 @@ Just a fun little project I started. Any similarities to actual people/places ar
 [Fifth Edition 27 April 2026](https://canva.link/sqlad20ieujaj1y)
 <br/>
 [Sixth Edition 11 May 2026](https://canva.link/pxygo6uh1nez5wc)
+<br/>
+[Seventh Edition 25 May 2026](https://canva.link/26yrzbddgjcwqmb)
