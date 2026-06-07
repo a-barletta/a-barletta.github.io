@@ -43,7 +43,7 @@ However, I already have an explanation as to why we have only seen 1980s-early 2
 
 Kane made it clear that Async did not create the Backrooms, but rather discovered them. _When_ the Backrooms were created is knowledge we do not have, and we may never know. However, my fiancé and I were talking and he said that maybe the Backrooms have always existed, but once humans made contact with it, memories started loading in like a Minecraft world.
 
-This explains perfectly the aesthetic choices of the Backrooms beyond being purely liminal space imagery. Furthermore, we know that our brains are constantly filling in gaps to create meaning. The Backrooms are a literal physical gap just waiting to be filled in once humans first made contact with it.
+This explains perfectly the aesthetic choices of the Backrooms beyond being purely liminal space imagery. Furthermore, we know that our brains are constantly filling in gaps to create meaning, a tendency called [pareidolia](https://www.merriam-webster.com/dictionary/pareidolia). The Backrooms are a literal physical gap just waiting to be filled in once humans first made contact with it.
 
 The characters in the found footage videos on Kane’s YouTube series, though confused by the seemingly random segmentation of the Backrooms and the not-quite-right furnishings, they ultimately find a place that is familiar because they took part in filling it in _together_.
 
