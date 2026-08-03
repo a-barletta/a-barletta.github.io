@@ -25,3 +25,6 @@ Just a fun little project I started. Any similarities to actual people/places ar
 [Tenth Edition 6 July 2026](https://canva.link/nstg3b4xc9fpb56)
 <br/>
 [Eleventh Edition 20 July 2026](https://canva.link/c6zkn2924hjddwm)
+<br/>
+[Twelfth Edition 3 August 2026](https://canva.link/6168i8ihsj9zsdl)
+
