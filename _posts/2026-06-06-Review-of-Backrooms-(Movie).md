@@ -57,7 +57,7 @@ I have had enough of the random complaints saying that it’s not scary or that 
 
 Another thing I hear about the movie is that the characters aren’t giving us the whole story of the Backrooms, and to that I say DUH! I think Clark had a pretty good handle on what the Backrooms are, but he obviously can’t know everything because the Backrooms are a space that does not make sense. Trying to make sense of the nonsensical is like describing a dog to someone who has never seen a dog and asking them to draw it.
 
-Meanwhile, bored and out-of-touch Hollywood keeps making Biopics, live action remakes, and sequels and prequels galore. And people pay hard-earned money to see this garbage What’s the next _Star Wars_ movie going to be? Palpatine coming back to life again? Stop beating these dead horses.
+Meanwhile, bored and out-of-touch Hollywood keeps making Biopics, live action remakes, and sequels and prequels galore. And people pay hard-earned money to see this garbage. What’s the next _Star Wars_ movie going to be? Palpatine coming back to life again? Stop beating these dead horses.
 
 Finally, _Backrooms_ provides audiences something new and interesting, but people can’t ever be happy enough with with an actually good movie directed by someone who hasn’t been beaten down by years working in the industry and therefore, has some creative agency. Hint hint, _Backrooms_ isn’t concerned with what will “sell,” it is concerned with holding up a mirror to humanity and asking us to look at ourselves.
 
