@@ -19,7 +19,7 @@ Lindsay also wears brown cowboy boots. Since I don’t own cowboy boots, I used 
 <p align="left">My version of Lindsay from one of my favorite shows, Total Drama Island.</p>
 </p>
 <br/>
-The next costume is from my favorite show of all time, _Gravity_Falls_–it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
+The next costume is from my favorite show of all time, _Gravity Falls_–it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
 <br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Mabel%20Pines.JPG?raw=true"
@@ -68,7 +68,7 @@ I decided to recreate Lindsay’s look from the episode “Kim Kelly is my frien
 <p align="left">The green jacket completes any Lindsay Weir look.</p>
 </p>
 <br/>
-Now that I have create looks from five of the best TV shows that exist in our world, I want to move on to characters from the best movies. The first look I want to share with you is Nicki Freeman from the hit movie _Obsession._ I have a bunch of pieces that worked really well for her first look in the movie.
+Now that I have created looks from five of the best TV shows that exist in our world, I want to move on to characters from the best movies. The first look I want to share with you is Nicki Freeman from the hit movie _Obsession._ I have a bunch of pieces that worked really well for her first look in the movie.
 <br/>
 I wore a green long-sleeve top even though hers in the movie is gray because I felt my green shirt matched the style the best. Then I put on black shorts, a denim jacket, leg warmers because I don’t have socks that go that high, and brown heeled boots.
 <br/>
