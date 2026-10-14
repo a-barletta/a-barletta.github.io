@@ -101,7 +101,8 @@ I have all the pieces to dress up as Fern Mayo, that is, before she becomes Vyle
 <br/>
 Now I am getting into the costumes that were the most fun for me to put together and wear. The next one is the queen herself, Regina George.
 <br/>
-I don’t own the “A Little BIt Dramatic” shirt, but they are for sale on literally any website you could think of right now that sells clothing. But this was my challenge to create the costumes from what I already had in my closet. Now, I’m not saying I bought this pink cardigan just in case I ever felt like dressing up as Regina, but also that’s exactly what I’m saying.
+<br/>
+I don’t own the “A Little Bit Dramatic” shirt, but they are for sale on literally any website you could think of right now that sells clothing. But this was my challenge to create the costumes from what I already had in my closet. Now, I’m not saying I bought this pink cardigan just in case I ever felt like dressing up as Regina, but also that’s exactly what I’m saying.
 <br/>
 <br/>
 It’s so simple, yet so pretty and fun to wear–black skirt, white tank top, pink cardigan, the highest heels I own (which happen to be nude) and a sparkly handbag I found in my closet that also belonged to my mother at one point. I got sparkles everywhere. I think that improved the outfit. I even put on a necklace with my initial on it to match hers.
