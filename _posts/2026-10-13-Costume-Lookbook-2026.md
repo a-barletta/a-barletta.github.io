@@ -125,7 +125,7 @@ I decided on white tennis shoes to go with this outfit since Cher wears tennis s
 <p align="left">Clueless is one of my ultimate comfort movies, so it would be a crime not to include it.</p>
 </p>
 <br/>
-The next outfit is from one of my favorite movies of all time, _Heathers_. While I think it would be more fun to do this as a group costume, I bet I could get away with doing this on my own and being recognized as Veronica Sawyer.
+The next outfit is from one of my favorite movies of all time, _Heathers_. While I think it would be more fun to do this as a group costume, I bet I could get away with doing this on my own and still be recognized as Veronica Sawyer.
 <br/>
 <br/>
 My skirt is bright blue, which doesn’t exactly match the more muted tones Veronica wears, but I’m choosing not to worry about it. I also wore black tights, a black corset top, and a light blue cardigan. I love how this one turned out because I created this outfit very last-minute compared to the others.
