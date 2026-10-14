@@ -20,7 +20,7 @@ Lindsay also wears brown cowboy boots. Since I don’t own cowboy boots, I used 
 <p align="left">My version of Lindsay from one of my favorite shows, Total Drama Island.</p>
 </p>
 <br/>
-The next costume is from my favorite show of all time, *Gravity Falls* –it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
+The next costume is from my favorite show of all time, _Gravity_Falls_ –it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
 <br/>
 <br/>
 <p align="center">
