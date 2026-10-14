@@ -13,15 +13,13 @@ The first costume I came up with is Lindsay from _Total Drama Island_. She is am
 <br/>
 Lindsay also wears brown cowboy boots. Since I don’t own cowboy boots, I used some brown saddle-type shoes with heels. And, of course, I wore a blue bandana. I really like how this look came out, and I am so happy I got to incorporate _Total Drama Island_ into my costume lookbook.
 <br/>
-<br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Lindsay%20TDI.JPG?raw=true"
   		 width="100%"/>
 <p align="left">My version of Lindsay from one of my favorite shows, Total Drama Island.</p>
 </p>
 <br/>
-The next costume is from my favorite show of all time, _Gravity_Falls_ –it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
-<br/>
+The next costume is from my favorite show of all time, _Gravity_Falls_–it’s Mabel Pines! Two years ago, I decided to knit her famous shooting star sweater without a pattern. I dressed up as her for Halloween that year, so I already had the rest of the pieces on hand: the purple skirt, the calf-high socks, and the black shoes. And let’s not forget her headband!
 <br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Mabel%20Pines.JPG?raw=true"
@@ -64,7 +62,6 @@ Okay, this is the final costume from my favorite TV shows before I move on to mo
 <br/>
 I decided to recreate Lindsay’s look from the episode “Kim Kelly is my friend.” She wears a red sweater, brown pants, and probably brown shoes to match. I don’t know, this isn’t a Dan Schnieder show, so there’s not a lot of focus on characters’ feet.
 <br/>
-<br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Lindsay%20Weir.JPG?raw=true"
   		 width="100%"/>
@@ -72,8 +69,8 @@ I decided to recreate Lindsay’s look from the episode “Kim Kelly is my frien
 </p>
 <br/>
 Now that I have create looks from five of the best TV shows that exist in our world, I want to move on to characters from the best movies. The first look I want to share with you is Nicki Freeman from the hit movie _Obsession._ I have a bunch of pieces that worked really well for her first look in the movie.
-	I wore a green long-sleeve top even though hers in the movie is gray because I felt my green shirt matched the style the best. Then I put on black shorts, a denim jacket, leg warmers because I don’t have socks that go that high, and brown heeled boots.
 <br/>
+I wore a green long-sleeve top even though hers in the movie is gray because I felt my green shirt matched the style the best. Then I put on black shorts, a denim jacket, leg warmers because I don’t have socks that go that high, and brown heeled boots.
 <br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Nicki.JPG?raw=true"
@@ -85,7 +82,6 @@ Speaking of 2026, _Backrooms_ was another fabulous movie that I have the means t
 <br/>
 <br/>
 So, I wore my khaki pants, and the top of this outfit is actually a dress that I tucked into the pants. The pants are so wide-legged that you can’t tell, but this was the closest I could get to a good Mary top because I don’t have the shoulder-padded vintage blouses she wears. I went with the brown clogs for this outfit, although I’m sure the Sperry boat shoes I have would’ve also worked.
-<br/>
 <br/>
 <p align="center">
       <img src="https://github.com/a-barletta/a-barletta.github.io/blob/main/images/Mary%20Kline.JPG?raw=true"
