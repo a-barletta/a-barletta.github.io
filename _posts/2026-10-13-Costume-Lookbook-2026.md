@@ -114,7 +114,7 @@ It’s so simple, yet so pretty and fun to wear–black skirt, white tank top, p
 Now, I couldn’t do a Halloween lookbook without re-creating one of Cher Horowitz’s outfits from _Clueless._ I am very sad to report that I do not own a plaid yellow skirt, but the outfit that I was able to make from the clothes in my closet turned out really well.
 <br/>
 <br/>
-This outfit is from the scene in the movie where Cher is sitting uncomfortably next to Josh on the couch. She wears a white t-shirt with a pink camisole over top and jeans. That may be a fashion sin to some, but I actually want to wear this out now. Nobody can stop me.
+This outfit is from the scene in the movie where Cher is sitting uncomfortably next to Josh on the couch. She wears a white t-shirt with a pink camisole overtop and jeans. That may be a fashion sin to some, but I actually want to wear this out now. Nobody can stop me.
 <br/>
 <br/>
 I decided on white tennis shoes to go with this outfit since Cher wears tennis shoes with her more casual outfits in the movie.
