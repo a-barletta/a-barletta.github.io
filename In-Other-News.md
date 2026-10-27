@@ -37,3 +37,5 @@ Just a fun little project I started. Any similarities to actual people/places ar
 [16th Edition 28 September 2026](https://canva.link/0yw407zpomqdbdy)
 <br/>
 [17th Edition 12 October 2026](https://canva.link/60qc3sskeqofpc4)
+<br/>
+[18th Edition 26 October 2026](https://canva.link/gdmiwjr6i8sb06a)
